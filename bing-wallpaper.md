@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-07 | [Maratonistas cruzando a ponte Verrazano-Narrows, em Nova Iorque, Estados Unidos (© David Madison/Getty Images)](https://global.bing.com/th?id=OHR.MarathonSunday_PT-BR4256998937_UHD.jpg) 
+
 2022-11-06 | [Tigh Mor Trossachs às margens do Loch Achray, na Escócia (© Fortunato Gatto/eStock Photo)](https://global.bing.com/th?id=OHR.Trossachs_PT-BR3005331374_UHD.jpg) 
 
 2022-11-02 | [Esqueletos (calacas) vestidos para as celebrações do tradicional Día de los Muertos, no México (© Amelia Fuentes Marin/Getty Images)](https://global.bing.com/th?id=OHR.Calacas_PT-BR6425689711_UHD.jpg) 
