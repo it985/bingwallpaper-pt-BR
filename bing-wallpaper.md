@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-08 | [Eclipse lunar acima do Mount Crested Butte, Colorado, nos Estados Unidos (© Mengzhonghua Photography/Getty Images)](https://global.bing.com/th?id=OHR.CrestedButteEclispe_PT-BR4446097044_UHD.jpg) 
+
 2022-11-07 | [Maratonistas cruzando a ponte Verrazano-Narrows, em Nova Iorque, Estados Unidos (© David Madison/Getty Images)](https://global.bing.com/th?id=OHR.MarathonSunday_PT-BR4256998937_UHD.jpg) 
 
 2022-11-06 | [Tigh Mor Trossachs às margens do Loch Achray, na Escócia (© Fortunato Gatto/eStock Photo)](https://global.bing.com/th?id=OHR.Trossachs_PT-BR3005331374_UHD.jpg) 
