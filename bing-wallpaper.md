@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-10 | [Ouriço-terrestre em Sussex, Inglaterra (© Jules Cox/Minden Pictures)](https://global.bing.com/th?id=OHR.HedgehogNest_PT-BR4791971016_UHD.jpg) 
+
 2022-11-09 | [Lanternas sobem aos céus durante o Festival Yi Peng em Chiang Mai, na Tailândia (© Suttipong Sutiratanachai/Getty Images)](https://global.bing.com/th?id=OHR.YiPeng_PT-BR4640177510_UHD.jpg) 
 
 2022-11-08 | [Eclipse lunar acima do Mount Crested Butte, Colorado, nos Estados Unidos (© Mengzhonghua Photography/Getty Images)](https://global.bing.com/th?id=OHR.CrestedButteEclispe_PT-BR4446097044_UHD.jpg) 
