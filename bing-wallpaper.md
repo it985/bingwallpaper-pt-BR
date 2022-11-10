@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-11 | [Formações rochosas no Parque Nacional das Badlands durante uma tempestade de raios, na Dakota do Sul, Estados Unidos (© DEEPOL by plainpicture)](https://global.bing.com/th?id=OHR.BadLightning_PT-BR4948004661_UHD.jpg) 
+
 2022-11-10 | [Ouriço-terrestre em Sussex, Inglaterra (© Jules Cox/Minden Pictures)](https://global.bing.com/th?id=OHR.HedgehogNest_PT-BR4791971016_UHD.jpg) 
 
 2022-11-09 | [Lanternas sobem aos céus durante o Festival Yi Peng em Chiang Mai, na Tailândia (© Suttipong Sutiratanachai/Getty Images)](https://global.bing.com/th?id=OHR.YiPeng_PT-BR4640177510_UHD.jpg) 
