@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-13 | [Grupo de águias-de-cabeça-branca próximo à Haines, no Alasca, Estados Unidos (© Marion Vollborn/Minden Pictures)](https://global.bing.com/th?id=OHR.HainesEagle_PT-BR5099054177_UHD.jpg) 
+
 2022-11-12 | [A bela Rua da Aurora, no Recife, Pernambuco (© FerreiraSilva/Getty Images)](https://global.bing.com/th?id=OHR.RuaAurora_PT-BR6608773307_UHD.jpg) 
 
 2022-11-11 | [Formações rochosas no Parque Nacional das Badlands durante uma tempestade de raios, na Dakota do Sul, Estados Unidos (© DEEPOL by plainpicture)](https://global.bing.com/th?id=OHR.BadLightning_PT-BR4948004661_UHD.jpg) 
