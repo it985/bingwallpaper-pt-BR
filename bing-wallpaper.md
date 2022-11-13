@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-14 | [Vista aérea do rio Isar e um afluente, na represa Sylvenstein, em Isarwinkel, Lenggries, na Alemanha (© Martin Siepmann/Offset/Shutterstock)](https://global.bing.com/th?id=OHR.IsarwinkelSylvenstein_PT-BR5517547564_UHD.jpg) 
+
 2022-11-13 | [Grupo de águias-de-cabeça-branca próximo à Haines, no Alasca, Estados Unidos (© Marion Vollborn/Minden Pictures)](https://global.bing.com/th?id=OHR.HainesEagle_PT-BR5099054177_UHD.jpg) 
 
 2022-11-12 | [A bela Rua da Aurora, no Recife, Pernambuco (© FerreiraSilva/Getty Images)](https://global.bing.com/th?id=OHR.RuaAurora_PT-BR6608773307_UHD.jpg) 
