@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-15 | [Ruínas do castelo medieval dos Cavaleiros de São João, acima da vila de Chorio, ilha de Halki, na Grécia (© Massimo Ripani/eStock Photo)](https://global.bing.com/th?id=OHR.SanGiovanni_PT-BR5680008327_UHD.jpg) 
+
 2022-11-14 | [Vista aérea do rio Isar e um afluente, na represa Sylvenstein, em Isarwinkel, Lenggries, na Alemanha (© Martin Siepmann/Offset/Shutterstock)](https://global.bing.com/th?id=OHR.IsarwinkelSylvenstein_PT-BR5517547564_UHD.jpg) 
 
 2022-11-13 | [Grupo de águias-de-cabeça-branca próximo à Haines, no Alasca, Estados Unidos (© Marion Vollborn/Minden Pictures)](https://global.bing.com/th?id=OHR.HainesEagle_PT-BR5099054177_UHD.jpg) 
