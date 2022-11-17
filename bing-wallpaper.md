@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-18 | [Ponte na trilha do rio McKenzie, Floresta Nacional de Willamette, em Oregon, nos Estados Unidos (© Don Paulson/Danita Delimont)](https://global.bing.com/th?id=OHR.McKenzieRiverTrail_PT-BR6251948053_UHD.jpg) 
+
 2022-11-17 | [Falésias no Parque Nacional de Mesa Verde, Colorado, nos Estados Unidos (© Brad McGinley Photography/Getty Images)](https://global.bing.com/th?id=OHR.Unesco50_PT-BR6043327844_UHD.jpg) 
 
 2022-11-16 | [Lontras-norte-americanas nadando no Parque Nacional de Acadia, Maine, nos Estados Unidos (© George Sanker/Minden Pictures)](https://global.bing.com/th?id=OHR.LontraCanadensis_PT-BR5875089036_UHD.jpg) 
