@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-22 | [Estádio Ahmad Bin Ali em Doha, no Catar (© Qatar 2022/Supreme Committee via Getty Images)](https://global.bing.com/th?id=OHR.FIFA2022_PT-BR8218468406_UHD.jpg) 
+
 2022-11-21 | [Museu Afro-Brasileiro em Salvador, na Bahia (© Ingolf Pompe/agefotostock)](https://global.bing.com/th?id=OHR.ConscienciaNegra_PT-BR7589906393_UHD.jpg) 
 
 2022-11-20 | [Rio Virgin no Parque Nacional de Zion, em Utah, Estados Unidos (© Jonathan Ross/Getty Images)](https://global.bing.com/th?id=OHR.ZNPVR_PT-BR7527696788_UHD.jpg) 
