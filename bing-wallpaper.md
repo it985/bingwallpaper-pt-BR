@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-24 | [Girassol (© Dileep Chandran/Alamy)](https://global.bing.com/th?id=OHR.HelianthusAnnuus_PT-BR8881284940_UHD.jpg) 
+
 2022-11-23 | [Raposa-vermelha na Reserva Natural Amsterdamse Waterleidingduinen, Países Baixos (© Edwin Giesbers/Minden Pictures)](https://global.bing.com/th?id=OHR.Waterleidingduinen_PT-BR8504412798_UHD.jpg) 
 
 2022-11-22 | [Estádio Ahmad Bin Ali em Doha, no Catar (© Qatar 2022/Supreme Committee via Getty Images)](https://global.bing.com/th?id=OHR.FIFA2022_PT-BR8218468406_UHD.jpg) 
