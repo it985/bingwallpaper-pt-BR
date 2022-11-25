@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-26 | [Vila Turenne durante o nascer do Sol, no departamento de Corrèze, Nouvelle-Aquitaine, França (© Tim Mannakee/plainpicture)](https://global.bing.com/th?id=OHR.TurenneSunrise_PT-BR9577830958_UHD.jpg) 
+
 2022-11-25 | [Vista da Montanha Kampenwand em Aschau im Chiemgau, na Baviera, Alemanha (© Toni Anzenberger/plainpicture)](https://global.bing.com/th?id=OHR.AschauChiemgau_PT-BR9234103307_UHD.jpg) 
 
 2022-11-24 | [Girassol (© Dileep Chandran/Alamy)](https://global.bing.com/th?id=OHR.HelianthusAnnuus_PT-BR8881284940_UHD.jpg) 
