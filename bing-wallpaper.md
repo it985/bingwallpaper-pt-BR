@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-28 | [Folha de Embaúba sobre pétalas de helicônia, no México (© Gerry Ellis/Minden Pictures)](https://global.bing.com/th?id=OHR.Cecropia_PT-BR0330935122_UHD.jpg) 
+
 2022-11-27 | [Oliveira em frente ao Templo de Concórdia, na Sicília, Itália (© Alfio Finocchiaro/Shutterstock)](https://global.bing.com/th?id=OHR.OliveTreeDay_PT-BR9869566361_UHD.jpg) 
 
 2022-11-26 | [Vila Turenne durante o nascer do Sol, no departamento de Corrèze, Nouvelle-Aquitaine, França (© Tim Mannakee/plainpicture)](https://global.bing.com/th?id=OHR.TurenneSunrise_PT-BR9577830958_UHD.jpg) 
