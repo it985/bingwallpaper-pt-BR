@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-30 | [Garças-azuis-grandes construindo um ninho no Wakodahatchee Wetlands, em Delray Beach, na Flórida, Estados Unidos (© Imagebroker/Alamy)](https://global.bing.com/th?id=OHR.HeronGiving_PT-BR0915216293_UHD.jpg) 
+
 2022-11-29 | [Marte (© NASA/Alamy)](https://global.bing.com/th?id=OHR.RedPlanetDay_PT-BR0687494844_UHD.jpg) 
 
 2022-11-28 | [Folha de Embaúba sobre pétalas de helicônia, no México (© Gerry Ellis/Minden Pictures)](https://global.bing.com/th?id=OHR.Cecropia_PT-BR0330935122_UHD.jpg) 
