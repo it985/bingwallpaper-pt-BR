@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-04 | [Ocean Drive em Miami Beach, Flórida, nos Estados Unidos (© Matteo Colombo/Getty Images)](https://global.bing.com/th?id=OHR.MiamiDT_PT-BR2292701663_UHD.jpg) 
+
 2022-12-03 | [Delta do rio Tlikakila no Parque Nacional e Reserva do Lago Clark, Alasca, Estados Unidos (© Dawn Wilson Photography/Getty Images)](https://global.bing.com/th?id=OHR.BraidedRiverDelta_PT-BR2103312525_UHD.jpg) 
 
 2022-11-30 | [Garças-azuis-grandes construindo um ninho no Wakodahatchee Wetlands, em Delray Beach, na Flórida, Estados Unidos (© Imagebroker/Alamy)](https://global.bing.com/th?id=OHR.HeronGiving_PT-BR0915216293_UHD.jpg) 
