@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-11 | [Salar de Uyuni, na Bolívia (© Theo Allofs/Minden Pictures)](https://global.bing.com/th?id=OHR.SaltDesert_PT-BR7726611596_UHD.jpg) 
+
 2022-12-10 | [Boi-almiscarado fêmea e seu filhote no Parque Nacional Dovrefjell-Sunndalsfjella, Noruega (© Robert Haasmann/Minden Pictures)](https://global.bing.com/th?id=OHR.NorwayMuskox_PT-BR7683183915_UHD.jpg) 
 
 2022-12-09 | [Catedral de Florença, em Florença, na Itália (© Alexander Baert/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.FlorenceAerial_PT-BR7634877783_UHD.jpg) 
