@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-14 | [Hallstatt, na Áustria (© Jon Arnold Images Ltd/Alamy)](https://global.bing.com/th?id=OHR.InstagramHallstatt_PT-BR7899105457_UHD.jpg) 
+
 2022-12-12 | [Vista do cume da montanha Roßstein, na Baviera, Alemanha (© Christian Bäck/eStock Photo)](https://global.bing.com/th?id=OHR.BuchsteinRossstein_PT-BR7795176492_UHD.jpg) 
 
 2022-12-11 | [Salar de Uyuni, na Bolívia (© Theo Allofs/Minden Pictures)](https://global.bing.com/th?id=OHR.SaltDesert_PT-BR7726611596_UHD.jpg) 
