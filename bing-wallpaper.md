@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-18 | [Cabra-das-rochosas no Parque Nacional Glacier, em Montana, Estados Unidos (© Sumio Harada/Minden Pictures)](https://global.bing.com/th?id=OHR.GlacierGoats_PT-BR0215576516_UHD.jpg) 
+
 2022-12-17 | [Pôr do Sol em Fernando de Noronha (© reubergd/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.FernandoNoronha_PT-BR7523185583_UHD.jpg) 
 
 2022-12-16 | [Museu de Arte Contemporânea de Niterói, Niterói, Rio de Janeiro (© Ingolf Pompe/Alamy)](https://global.bing.com/th?id=OHR.OscarNiemeyer_PT-BR5346400510_UHD.jpg) 
