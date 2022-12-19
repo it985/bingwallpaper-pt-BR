@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-20 | [Cardeal-do-norte empoleirado em um azevinho, no condado de Marion, Illinois, nos Estados Unidos (© Richard and Susan Day/Danita Delimont)](https://global.bing.com/th?id=OHR.WinterberryBush_PT-BR2594733429_UHD.jpg) 
+
 2022-12-19 | [South Beach em Miami, Flórida, nos Estados Unidos (© Claudia Uripos/eStock Photo)](https://global.bing.com/th?id=OHR.SouthBeach_PT-BR2709722523_UHD.jpg) 
 
 2022-12-18 | [Cabra-das-rochosas no Parque Nacional Glacier, em Montana, Estados Unidos (© Sumio Harada/Minden Pictures)](https://global.bing.com/th?id=OHR.GlacierGoats_PT-BR0215576516_UHD.jpg) 
