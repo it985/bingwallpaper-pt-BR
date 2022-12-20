@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-21 | [Mercado de Natal em Belvedere, Viena, na Áustria (© Diyana Dimitrova/Alamy)](https://global.bing.com/th?id=OHR.PalaceBelvedere_PT-BR2452318549_UHD.jpg) 
+
 2022-12-20 | [Cardeal-do-norte empoleirado em um azevinho, no condado de Marion, Illinois, nos Estados Unidos (© Richard and Susan Day/Danita Delimont)](https://global.bing.com/th?id=OHR.WinterberryBush_PT-BR2594733429_UHD.jpg) 
 
 2022-12-19 | [South Beach em Miami, Flórida, nos Estados Unidos (© Claudia Uripos/eStock Photo)](https://global.bing.com/th?id=OHR.SouthBeach_PT-BR2709722523_UHD.jpg) 
