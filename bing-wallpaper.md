@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-22 | [Halo solar sobre o Lago Antermoia, nas montanhas Dolomitas da Itália (© Walter Donega/Getty Images)](https://global.bing.com/th?id=OHR.SolarHalo_PT-BR2323112122_UHD.jpg) 
+
 2022-12-21 | [Mercado de Natal em Belvedere, Viena, na Áustria (© Diyana Dimitrova/Alamy)](https://global.bing.com/th?id=OHR.PalaceBelvedere_PT-BR2452318549_UHD.jpg) 
 
 2022-12-20 | [Cardeal-do-norte empoleirado em um azevinho, no condado de Marion, Illinois, nos Estados Unidos (© Richard and Susan Day/Danita Delimont)](https://global.bing.com/th?id=OHR.WinterberryBush_PT-BR2594733429_UHD.jpg) 
