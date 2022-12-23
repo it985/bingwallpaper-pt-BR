@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-24 | [Pinguim-gentoo na Antártica (© Nature Picture Library/Alamy)](https://global.bing.com/th?id=OHR.GentooGrievances_PT-BR2134800834_UHD.jpg) 
+
 2022-12-23 | [Árvore de Natal nas Galeries Lafayette, em Paris, França (© Geoffroy Van der Hasselt/AFP via Getty Images)](https://global.bing.com/th?id=OHR.TreeGaleriesLafayette_PT-BR2224523829_UHD.jpg) 
 
 2022-12-22 | [Halo solar sobre o Lago Antermoia, nas montanhas Dolomitas da Itália (© Walter Donega/Getty Images)](https://global.bing.com/th?id=OHR.SolarHalo_PT-BR2323112122_UHD.jpg) 
