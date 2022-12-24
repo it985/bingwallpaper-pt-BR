@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-25 | [Amalga Harbor, no Alasca, Estados Unidos (© Mark Kelley/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.AmalgaTree_PT-BR2052946290_UHD.jpg) 
+
 2022-12-24 | [Pinguim-gentoo na Antártica (© Nature Picture Library/Alamy)](https://global.bing.com/th?id=OHR.GentooGrievances_PT-BR2134800834_UHD.jpg) 
 
 2022-12-23 | [Árvore de Natal nas Galeries Lafayette, em Paris, França (© Geoffroy Van der Hasselt/AFP via Getty Images)](https://global.bing.com/th?id=OHR.TreeGaleriesLafayette_PT-BR2224523829_UHD.jpg) 
