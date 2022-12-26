@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-27 | [Área pública em Beverley Westwood, East Yorkshire, Inglaterra (© Les Gibbon/Alamy)](https://global.bing.com/th?id=OHR.BeverleyWestwood_PT-BR1880349839_UHD.jpg) 
+
 2022-12-26 | [Maquete de Natal em Estrasburgo, na França (© Kavalenkava Volha/Alamy)](https://global.bing.com/th?id=OHR.ChristmasSouvenir_PT-BR1975896502_UHD.jpg) 
 
 2022-12-25 | [Amalga Harbor, no Alasca, Estados Unidos (© Mark Kelley/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.AmalgaTree_PT-BR2052946290_UHD.jpg) 
