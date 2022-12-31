@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-01 | [Fogos de artifício na noite de ano novo em Sidney, na Austrália (© Wendell Teodoro/Getty Images)](https://global.bing.com/th?id=OHR.SydneyNYE_PT-BR5711249068_UHD.jpg) 
+
 2022-12-31 | [Corrida Internacional de São Silvestre em São Paulo (© Dario Oliveira/Getty Images)](https://global.bing.com/th?id=OHR.SaoSilvestre_PT-BR8562839549_UHD.jpg) 
 
 2022-12-30 | [Par de Plebejus argus (© Misja Smits/Minden Pictures)](https://global.bing.com/th?id=OHR.ButterflyEffect_PT-BR1686758245_UHD.jpg) 
