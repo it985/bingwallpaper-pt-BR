@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-03 | [Castelo de Hohenzollern, Alemanha  (© Sahara Prince/Shutterstock)](https://global.bing.com/th?id=OHR.HohenzollernBurg_PT-BR7442014246_UHD.jpg) 
+
 2023-01-02 | [Urso-polar em Svalbard, na Noruega (© Dennis Stogsdill/Getty Images)](https://global.bing.com/th?id=OHR.NorwayNYD_PT-BR6740843753_UHD.jpg) 
 
 2023-01-01 | [Fogos de artifício na noite de ano novo em Sidney, na Austrália (© Wendell Teodoro/Getty Images)](https://global.bing.com/th?id=OHR.SydneyNYE_PT-BR5711249068_UHD.jpg) 
