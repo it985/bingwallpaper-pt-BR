@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-08 | [Lã e lã de mohair (© Jurate Buiviene/Alamy)](https://global.bing.com/th?id=OHR.Mohair_PT-BR8477841787_UHD.jpg) 
+
 2023-01-07 | [Borovets, na Bulgária (© Grigor Ivanov/Cavan Images)](https://global.bing.com/th?id=OHR.Borovets_PT-BR8295387224_UHD.jpg) 
 
 2023-01-06 | [Festival Internacional de Esculturas de Gelo e Neve de Harbin, em Harbin, na China (© STR/AFP via Getty Images)](https://global.bing.com/th?id=OHR.HIISSF_PT-BR8164535702_UHD.jpg) 
