@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-10 | [Búfalo no Parque Nacional de Wind Cave, Dakota do Sul, nos Estados Unidos (© Charlie Summers/Minden Pictures)](https://global.bing.com/th?id=OHR.BisonWindCave_PT-BR8900405684_UHD.jpg) 
+
 2023-01-09 | [Breckenridge, no Colorado, Estados Unidos (© Sean Pavone/Shutterstock)](https://global.bing.com/th?id=OHR.Breckenridge_PT-BR8969793974_UHD.jpg) 
 
 2023-01-08 | [Lã e lã de mohair (© Jurate Buiviene/Alamy)](https://global.bing.com/th?id=OHR.Mohair_PT-BR8477841787_UHD.jpg) 
