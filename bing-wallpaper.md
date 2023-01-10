@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-11 | [Obra de arte “Mundo em Progresso II” do artista Saype, no quartel-general das Nações Unidas em Nova Iorque, Estados Unidos (© Valentin Flauraud/Shutterstock)](https://global.bing.com/th?id=OHR.LandartPainting_PT-BR9036618473_UHD.jpg) 
+
 2023-01-10 | [Búfalo no Parque Nacional de Wind Cave, Dakota do Sul, nos Estados Unidos (© Charlie Summers/Minden Pictures)](https://global.bing.com/th?id=OHR.BisonWindCave_PT-BR8900405684_UHD.jpg) 
 
 2023-01-09 | [Breckenridge, no Colorado, Estados Unidos (© Sean Pavone/Shutterstock)](https://global.bing.com/th?id=OHR.Breckenridge_PT-BR8969793974_UHD.jpg) 
