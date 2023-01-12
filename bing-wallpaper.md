@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-13 | [Rumelihisarı, no estreito de Bósforo, em Istambul, na Turquia (© Drone in Wonderland/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.RumeliHisari_PT-BR8703168873_UHD.jpg) 
+
 2023-01-12 | ['Umschreibung' obra do artista Olafur Eliasson, em Schwantalerhöhe, Munique, na Alemanha (© Manfred Bail/Alamy)](https://global.bing.com/th?id=OHR.Umschreibung_PT-BR8777372761_UHD.jpg) 
 
 2023-01-11 | [Obra de arte “Mundo em Progresso II” do artista Saype, no quartel-general das Nações Unidas em Nova Iorque, Estados Unidos (© Valentin Flauraud/Shutterstock)](https://global.bing.com/th?id=OHR.LandartPainting_PT-BR9036618473_UHD.jpg) 
