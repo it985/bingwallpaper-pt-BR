@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-14 | [Algas gigantes no Santuário Marinho Nacional de Channel Island na Califórnia, nos Estados Unidos  (© Brandon Cole Images/Shutterstock)](https://global.bing.com/th?id=OHR.Pneumatocysts_PT-BR5612865719_UHD.jpg) 
+
 2023-01-13 | [Rumelihisarı, no estreito de Bósforo, em Istambul, na Turquia (© Drone in Wonderland/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.RumeliHisari_PT-BR8703168873_UHD.jpg) 
 
 2023-01-12 | ['Umschreibung' obra do artista Olafur Eliasson, em Schwantalerhöhe, Munique, na Alemanha (© Manfred Bail/Alamy)](https://global.bing.com/th?id=OHR.Umschreibung_PT-BR8777372761_UHD.jpg) 
