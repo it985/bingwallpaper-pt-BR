@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-17 | [Monte Michener e um congelado lago Abraham em Alberta, no Canadá (© Tom Mackie/plainpicture)](https://global.bing.com/th?id=OHR.FrozenBubblesAlberta_PT-BR6062602082_UHD.jpg) 
+
 2023-01-16 | [Rio Aura em Turku, na Finlândia  (© Jarmo Piironen/Alamy)](https://global.bing.com/th?id=OHR.Turku_PT-BR4751286608_UHD.jpg) 
 
 2023-01-15 | [Burro doméstico se alimentando de galhos de cereja  (© Juniors Bildarchiv GmbH/Alamy)](https://global.bing.com/th?id=OHR.DonkeyFeast_PT-BR5237803404_UHD.jpg) 
