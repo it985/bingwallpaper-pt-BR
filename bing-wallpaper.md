@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-22 | [Mãe e bebê canguru  (© Belle Ciezak/Shutterstock)](https://global.bing.com/th?id=OHR.HuggingKanga_PT-BR2740360906_UHD.jpg) 
+
 2023-01-21 | [Pinguins-rei nas Ilhas Malvinas  (© Elmar Weiss/Getty Images)](https://global.bing.com/th?id=OHR.FalklandKings_PT-BR3073987483_UHD.jpg) 
 
 2023-01-20 | [Park City, Utah, nos Estados Unidos (© Kruck20/Getty Images)](https://global.bing.com/th?id=OHR.SFFParkCity_PT-BR3446194387_UHD.jpg) 
