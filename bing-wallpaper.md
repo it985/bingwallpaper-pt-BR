@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-24 | [Estátuas Moai na Ilha de Páscoa, no Chile (© Karine Aigner/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SunriseMoai_PT-BR1777364641_UHD.jpg) 
+
 2023-01-23 | [Lebre da montanha em Derbyshire, na Inglaterra (© Ben Hall/Minden Pictures)](https://global.bing.com/th?id=OHR.YearRabbit_PT-BR2148823634_UHD.jpg) 
 
 2023-01-22 | [Mãe e bebê canguru  (© Belle Ciezak/Shutterstock)](https://global.bing.com/th?id=OHR.HuggingKanga_PT-BR2740360906_UHD.jpg) 
