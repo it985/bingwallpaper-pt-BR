@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-26 | [Ponte Estaiada na cidade de São Paulo (© gustavofrazao/Getty Images)](https://global.bing.com/th?id=OHR.EstaiadaSaoPaulo_PT-BR4426760487_UHD.jpg) 
+
 2023-01-25 | [Colle Santa Lucia nas Dolomitas, na Itália  (© mauritius images GmbH/Alamy)](https://global.bing.com/th?id=OHR.ColleSantaLucia_PT-BR1126668763_UHD.jpg) 
 
 2023-01-24 | [Estátuas Moai na Ilha de Páscoa, no Chile (© Karine Aigner/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SunriseMoai_PT-BR1777364641_UHD.jpg) 
