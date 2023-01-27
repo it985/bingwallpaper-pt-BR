@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-28 | [Mangue vermelho no Parque Nacional de Guanahacabibes, em Cuba (© Claudio Contreras/Minden Pictures)](https://global.bing.com/th?id=OHR.RedMangrove_PT-BR6364946074_UHD.jpg) 
+
 2023-01-27 | [Porta do Céu no Parque Nacional da Montanha Tianmen, na China  (© Shane P. White/Minden Pictures)](https://global.bing.com/th?id=OHR.HighArchChina_PT-BR0414492326_UHD.jpg) 
 
 2023-01-26 | [Ponte Estaiada na cidade de São Paulo (© gustavofrazao/Getty Images)](https://global.bing.com/th?id=OHR.EstaiadaSaoPaulo_PT-BR4426760487_UHD.jpg) 
