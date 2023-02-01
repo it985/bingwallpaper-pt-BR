@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-02 | [O Château de Pierrefonds no departamento de Oise da Picardia, na França (© Hemis/Alamy)](https://global.bing.com/th?id=OHR.SunriseCastle_PT-BR7193837721_UHD.jpg) 
+
 2023-02-01 | [Zebras de Burchell Rietvlei Nature Reserve, na África do Sul (© Richard Du Toit/Minden Pictures)](https://global.bing.com/th?id=OHR.ZebraTrio_PT-BR4226850473_UHD.jpg) 
 
 2023-01-31 | [Campeonato Europeu de Vela no Gelo e na Neve no Lago Balaton, na Hungria (© mauritius images GmbH/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.IceSailingBalaton_PT-BR4468661627_UHD.jpg) 
