@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-07 | [Parque Nacional Fiordland na Ilha Sul, na Nova Zelândia (© WitR/Adobe Stock)](https://global.bing.com/th?id=OHR.WaitangiFjordlandNP_PT-BR5408547916_UHD.jpg) 
+
 2023-02-06 | [Borboletas-monarca em Pismo Beach, na Califórnia, nos EUA  (© Mimi Ditchie/Getty Images)](https://global.bing.com/th?id=OHR.MonarchPismo_PT-BR0165590012_UHD.jpg) 
 
 2023-02-05 | [Torre Feldberg na Floresta Negra, Baden-Württemberg, na Alemanha (© Hemis/Alamy)](https://global.bing.com/th?id=OHR.FeldbergSchnee_PT-BR6562307164_UHD.jpg) 
