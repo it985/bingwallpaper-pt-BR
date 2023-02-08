@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-09 | [Área de descanso de Ureddplassen na rota cênica norueguesa de Helgelandskysten, na Noruega (© Eyesite/Alamy)](https://global.bing.com/th?id=OHR.NorwayRestArea_PT-BR4570146967_UHD.jpg) 
+
 2023-02-08 | [Aldeia de Labro, Província de Rieti, na Itália  (© Marco Ilari/Shutterstock)](https://global.bing.com/th?id=OHR.MedievalLabro_PT-BR4954609895_UHD.jpg) 
 
 2023-02-07 | [Parque Nacional Fiordland na Ilha Sul, na Nova Zelândia (© WitR/Adobe Stock)](https://global.bing.com/th?id=OHR.WaitangiFjordlandNP_PT-BR5408547916_UHD.jpg) 
