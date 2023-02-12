@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-13 | [Patola-de-pés-azuis, Ilhas Galápagos, Equador (© Tui De Roy/Minden Pictures)](https://global.bing.com/th?id=OHR.BoobyDarwinDay_PT-BR1794031091_UHD.jpg) 
+
 2023-02-12 | [A Via Láctea sobre Zabriskie Point, Death Valley, na Califórnia, nos EUA (© Matt Anderson Photography/Getty Images)](https://global.bing.com/th?id=OHR.DarkSkiesDV_PT-BR2101370442_UHD.jpg) 
 
 2023-02-11 | [Antigo Teatro de Epidauro na província de Argolis, na Grécia  (© George Pachantouris/Getty Images)](https://global.bing.com/th?id=OHR.EpidaurusGreece_PT-BR2032159605_UHD.jpg) 
