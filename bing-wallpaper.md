@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-16 | [Hipopótamo mãe e bebê, Chobe National Park, na Botswana (© jacobeukman/Getty Images)](https://global.bing.com/th?id=OHR.HippoDayChobe_PT-BR2363188958_UHD.jpg) 
+
 2023-02-15 | [Iglu no festival de neve de Otaru, no Hokkaido, no Japão (© T Photography/Shutterstock)](https://global.bing.com/th?id=OHR.OtaruIgloo_PT-BR2303626015_UHD.jpg) 
 
 2023-02-14 | [Mirante de Achaches, Vale da Lua, no Chile  (© Ignacio Palacios/Getty Images)](https://global.bing.com/th?id=OHR.MoonValley_PT-BR2247062582_UHD.jpg) 
