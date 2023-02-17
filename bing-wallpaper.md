@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-18 | [Beija-flor de Allen empoleirado na planta pata de canguru vermelha (© GypsyPictureShow/Shutterstock)](https://global.bing.com/th?id=OHR.BirdcountAllen_PT-BR2504339819_UHD.jpg) 
+
 2023-02-17 | ["Firefall" em Horsetail Falls, Yosemite National Park, na Califórnia, nos EUA (© Jeff Lewis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.FireFallYosemite_PT-BR2432287290_UHD.jpg) 
 
 2023-02-16 | [Hipopótamo mãe e bebê, Chobe National Park, na Botswana (© jacobeukman/Getty Images)](https://global.bing.com/th?id=OHR.HippoDayChobe_PT-BR2363188958_UHD.jpg) 
