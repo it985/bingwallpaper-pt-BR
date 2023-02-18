@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-19 | [Cavernas de Gelo de Eben, Península Superior, no Michigan, nos EUA (© Dean Pennala/Shutterstock)](https://global.bing.com/th?id=OHR.EbenIceCave_PT-BR2569128502_UHD.jpg) 
+
 2023-02-18 | [Beija-flor de Allen empoleirado na planta pata de canguru vermelha (© GypsyPictureShow/Shutterstock)](https://global.bing.com/th?id=OHR.BirdcountAllen_PT-BR2504339819_UHD.jpg) 
 
 2023-02-17 | ["Firefall" em Horsetail Falls, Yosemite National Park, na Califórnia, nos EUA (© Jeff Lewis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.FireFallYosemite_PT-BR2432287290_UHD.jpg) 
