@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-21 | [Cânion do Itaimbezinho, Brasil (© NidoHuebl/Getty Images)](https://global.bing.com/th?id=OHR.Itaimbezinho_PT-BR2709543771_UHD.jpg) 
+
 2023-02-20 | [Baleias jubarte, Maui, no Havaí, nos EUA  (© Flip Nicklin/Minden Pictures)](https://global.bing.com/th?id=OHR.MauiWhale_PT-BR2650899456_UHD.jpg) 
 
 2023-02-19 | [Cavernas de Gelo de Eben, Península Superior, no Michigan, nos EUA (© Dean Pennala/Shutterstock)](https://global.bing.com/th?id=OHR.EbenIceCave_PT-BR2569128502_UHD.jpg) 
