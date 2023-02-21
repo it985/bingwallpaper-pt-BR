@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-22 | [Bairro Francês, Nova Orleans, na Luisiana, nos EUA  (© f11photo/Getty Images)](https://global.bing.com/th?id=OHR.MardiGrasNOLA_PT-BR2777418265_UHD.jpg) 
+
 2023-02-21 | [Cânion do Itaimbezinho, Brasil (© NidoHuebl/Getty Images)](https://global.bing.com/th?id=OHR.Itaimbezinho_PT-BR2709543771_UHD.jpg) 
 
 2023-02-20 | [Baleias jubarte, Maui, no Havaí, nos EUA  (© Flip Nicklin/Minden Pictures)](https://global.bing.com/th?id=OHR.MauiWhale_PT-BR2650899456_UHD.jpg) 
