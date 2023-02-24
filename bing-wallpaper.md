@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-25 | [Pato mandarim, Richmond Park, em Londres, no Reino Unido (© Oscar Dewhurst/Minden Pictures)](https://global.bing.com/th?id=OHR.RichmondParkDuck_PT-BR8787296136_UHD.jpg) 
+
 2023-02-24 | [Paris, na França  (© somchaij/Shutterstock)](https://global.bing.com/th?id=OHR.ParisWinter_PT-BR2934531188_UHD.jpg) 
 
 2023-02-23 | [Sino da paz no cume de Fichtelberg, Saxônia, na Alemanha (© Jan Drahokoupil/Getty Images)](https://global.bing.com/th?id=OHR.FriedensglockeFichtelberg_PT-BR2869405325_UHD.jpg) 
