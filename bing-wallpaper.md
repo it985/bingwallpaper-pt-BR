@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-02 | [O portão de Holsten em Lübeck, na Alemanha (© Harald Nachtmann/Getty Images)](https://global.bing.com/th?id=OHR.LuebeckCityGate_PT-BR1795689209_UHD.jpg) 
+
 2023-03-01 | [Atrani, Costa Amalfitana, na Itália (© Amazing Aerial/Shutterstock)](https://global.bing.com/th?id=OHR.AtraniAmalfi_PT-BR0850219257_UHD.jpg) 
 
 2023-02-28 | [Ursos polares dormindo no Canadá (© David Pike/Minden Pictures)](https://global.bing.com/th?id=OHR.PolarBearFrost_PT-BR0431198913_UHD.jpg) 
