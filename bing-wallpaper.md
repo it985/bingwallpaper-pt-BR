@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-03 | [Lago Negratín, Granada, na Espanha (© Andres Martinez Olmedo/Getty Images)](https://global.bing.com/th?id=OHR.NegratinSpain_PT-BR1249920654_UHD.jpg) 
+
 2023-03-02 | [O portão de Holsten em Lübeck, na Alemanha (© Harald Nachtmann/Getty Images)](https://global.bing.com/th?id=OHR.LuebeckCityGate_PT-BR1795689209_UHD.jpg) 
 
 2023-03-01 | [Atrani, Costa Amalfitana, na Itália (© Amazing Aerial/Shutterstock)](https://global.bing.com/th?id=OHR.AtraniAmalfi_PT-BR0850219257_UHD.jpg) 
