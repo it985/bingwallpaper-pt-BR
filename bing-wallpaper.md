@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-04 | [Baleias assassinas em Spildra, na Noruega (© Alex Mustard/Minden Pictures)](https://global.bing.com/th?id=OHR.OrcaNorway_PT-BR1682815787_UHD.jpg) 
+
 2023-03-03 | [Lago Negratín, Granada, na Espanha (© Andres Martinez Olmedo/Getty Images)](https://global.bing.com/th?id=OHR.NegratinSpain_PT-BR1249920654_UHD.jpg) 
 
 2023-03-02 | [O portão de Holsten em Lübeck, na Alemanha (© Harald Nachtmann/Getty Images)](https://global.bing.com/th?id=OHR.LuebeckCityGate_PT-BR1795689209_UHD.jpg) 
