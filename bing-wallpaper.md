@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-05 | [Estrada para a Montanha do Pico, em Portugal (© Marco Bottigelli/Getty Images)](https://global.bing.com/th?id=OHR.PicoVolcano_PT-BR2663538574_UHD.jpg) 
+
 2023-03-04 | [Baleias assassinas em Spildra, na Noruega (© Alex Mustard/Minden Pictures)](https://global.bing.com/th?id=OHR.OrcaNorway_PT-BR1682815787_UHD.jpg) 
 
 2023-03-03 | [Lago Negratín, Granada, na Espanha (© Andres Martinez Olmedo/Getty Images)](https://global.bing.com/th?id=OHR.NegratinSpain_PT-BR1249920654_UHD.jpg) 
