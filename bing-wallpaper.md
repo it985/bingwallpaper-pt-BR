@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-06 | [Museu do Amanhã (Museum of Tomorrow) in Rio de Janeiro, Brazil (© Nido Huebl/Shutterstock)](https://global.bing.com/th?id=OHR.MuseudoAmanha_PT-BR4558547733_UHD.jpg) 
+
 2023-03-05 | [Estrada para a Montanha do Pico, em Portugal (© Marco Bottigelli/Getty Images)](https://global.bing.com/th?id=OHR.PicoVolcano_PT-BR2663538574_UHD.jpg) 
 
 2023-03-04 | [Baleias assassinas em Spildra, na Noruega (© Alex Mustard/Minden Pictures)](https://global.bing.com/th?id=OHR.OrcaNorway_PT-BR1682815787_UHD.jpg) 
