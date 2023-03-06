@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-07 | [Cavalos islandeses parados num campo, na Islândia (© Rodrigo Lourezini/Shutterstock)](https://global.bing.com/th?id=OHR.IcelandHorses_PT-BR4920223560_UHD.jpg) 
+
 2023-03-06 | [Museu do Amanhã (Museum of Tomorrow) in Rio de Janeiro, Brazil (© Nido Huebl/Shutterstock)](https://global.bing.com/th?id=OHR.MuseudoAmanha_PT-BR4558547733_UHD.jpg) 
 
 2023-03-05 | [Estrada para a Montanha do Pico, em Portugal (© Marco Bottigelli/Getty Images)](https://global.bing.com/th?id=OHR.PicoVolcano_PT-BR2663538574_UHD.jpg) 
