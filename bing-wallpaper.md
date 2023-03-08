@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-09 | [Fonte Cibeles e Prefeitura de Madri iluminadas para o Dia Internacional da Mulher, em Madri, na Espanha (© dpa picture alliance/Alamy)](https://global.bing.com/th?id=OHR.IntlWomensDayChange_PT-BR6861747407_UHD.jpg) 
+
 2023-03-08 | [Vista aérea de campos de arroz em terraços, Yuanyang, na China (© AlexGcs/Getty Images)](https://global.bing.com/th?id=OHR.YuanyangChina_PT-BR5370170662_UHD.jpg) 
 
 2023-03-07 | [Cavalos islandeses parados num campo, na Islândia (© Rodrigo Lourezini/Shutterstock)](https://global.bing.com/th?id=OHR.IcelandHorses_PT-BR4920223560_UHD.jpg) 
