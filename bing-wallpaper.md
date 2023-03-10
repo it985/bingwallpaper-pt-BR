@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-11 | [Vale de Edale, Peak District, na Inglaterra (© John Finney/Getty Images)](https://global.bing.com/th?id=OHR.EdaleValley_PT-BR0117674743_UHD.jpg) 
+
 2023-03-10 | [Arco-íris sobre Waimea Canyon e Waipo'o Falls, Kauai, no Havaí, nos EUA (© Beverley Van Praagh/Getty Images)](https://global.bing.com/th?id=OHR.WaimeaRainbow_PT-BR7420106529_UHD.jpg) 
 
 2023-03-09 | [Fonte Cibeles e Prefeitura de Madri iluminadas para o Dia Internacional da Mulher, em Madri, na Espanha (© dpa picture alliance/Alamy)](https://global.bing.com/th?id=OHR.IntlWomensDayChange_PT-BR6861747407_UHD.jpg) 
