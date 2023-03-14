@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-15 | [Parque Botânico de Cyherbia, no Chipre (© Tpopova/Getty Images)](https://global.bing.com/th?id=OHR.CyprusMaze_PT-BR0372990733_UHD.jpg) 
+
 2023-03-14 | [Leoas dormindo, no Parque Nacional Serengeti, na Tanzânia (© Cavan Images/Shutterstock)](https://global.bing.com/th?id=OHR.LionessesNap_PT-BR0312442909_UHD.jpg) 
 
 2023-03-13 | [Teatro Nacional, Cluj-Napoca, na Romênia (© Thomas Mueller/Shutterstock)](https://global.bing.com/th?id=OHR.TheaterRomania_PT-BR0260265993_UHD.jpg) 
