@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-17 | [Panda gigante na Base Panda de Chengdu, na China (© Jim Zuckerman/Jaynes Gallery/DanitaDelimont)](https://global.bing.com/th?id=OHR.ChengduPanda_PT-BR0503978059_UHD.jpg) 
+
 2023-03-16 | [Agüero, na Espanha (© Andrea Comi/Getty Images)](https://global.bing.com/th?id=OHR.AgueroSpain_PT-BR0434486976_UHD.jpg) 
 
 2023-03-15 | [Parque Botânico de Cyherbia, no Chipre (© Tpopova/Getty Images)](https://global.bing.com/th?id=OHR.CyprusMaze_PT-BR0372990733_UHD.jpg) 
