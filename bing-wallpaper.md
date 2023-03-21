@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-22 | [Giz pastel colorido (© Stephen Shepherd/plainpicture)](https://global.bing.com/th?id=OHR.ColourDay_PT-BR0798691533_UHD.jpg) 
+
 2023-03-21 | [Açafrão roxo (© Raimund Linke/Getty Images)](https://global.bing.com/th?id=OHR.PurpleCrocus_PT-BR0739233383_UHD.jpg) 
 
 2023-03-20 | [Coruja-das-torres, na Inglaterra (© Ondrej Prosicky/Getty Images)](https://global.bing.com/th?id=OHR.BarnOwlWinter_PT-BR0666804478_UHD.jpg) 
