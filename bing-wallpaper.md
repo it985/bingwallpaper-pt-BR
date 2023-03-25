@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-26 | [Cecil Brewer Staircase, Londres, na Inglaterra (© Yiran An/Getty Images)](https://global.bing.com/th?id=OHR.CecilBrewerStaircase_PT-BR5540034692_UHD.jpg) 
+
 2023-03-25 | [Alho selvagem florescendo, Parque Nacional de Hainich, na Alemanha (© Frank Sommariva/Getty Images)](https://global.bing.com/th?id=OHR.WildGarlic_PT-BR5016691501_UHD.jpg) 
 
 2023-03-24 | [Nuvens lenticulares, na Patagônia (© Sasha Juliard/Shutterstock)](https://global.bing.com/th?id=OHR.CloudsPatagonia_PT-BR0938226680_UHD.jpg) 
