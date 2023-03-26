@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-27 | [Flores silvestres no Anza Borrego Desert State Park, na Califórnia, nos EUA (© Ron and Patty Thomas/Getty Images)](https://global.bing.com/th?id=OHR.WildAnza_PT-BR6127577017_UHD.jpg) 
+
 2023-03-26 | [Cecil Brewer Staircase, Londres, na Inglaterra (© Yiran An/Getty Images)](https://global.bing.com/th?id=OHR.CecilBrewerStaircase_PT-BR5540034692_UHD.jpg) 
 
 2023-03-25 | [Alho selvagem florescendo, Parque Nacional de Hainich, na Alemanha (© Frank Sommariva/Getty Images)](https://global.bing.com/th?id=OHR.WildGarlic_PT-BR5016691501_UHD.jpg) 
