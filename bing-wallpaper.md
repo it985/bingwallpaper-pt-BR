@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-29 | [Via Láctea acima de Tre Cime di Lavaredo, Tirol do Sul, na Itália (© Juan Romero/Cavan Images)](https://global.bing.com/th?id=OHR.MWDolomites_PT-BR7042965893_UHD.jpg) 
+
 2023-03-28 | [Horizonte da cidade de Nova Iorque em meio à névoa (© Orbon Alija/Getty Images)](https://global.bing.com/th?id=OHR.NYCClouds_PT-BR6801277144_UHD.jpg) 
 
 2023-03-27 | [Flores silvestres no Anza Borrego Desert State Park, na Califórnia, nos EUA (© Ron and Patty Thomas/Getty Images)](https://global.bing.com/th?id=OHR.WildAnza_PT-BR6127577017_UHD.jpg) 
