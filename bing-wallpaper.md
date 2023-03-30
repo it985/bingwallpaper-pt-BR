@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-31 | [Penas de Pavão (© Sarayut Thaneerat/Getty Images)](https://global.bing.com/th?id=OHR.PeacockFeathers_PT-BR7599537252_UHD.jpg) 
+
 2023-03-30 | [Dois peixes-boi, Crystal River, na Flórida, nos EUA (© Gregory Sweeney/Getty Images)](https://global.bing.com/th?id=OHR.NuzzleManatee_PT-BR7322931315_UHD.jpg) 
 
 2023-03-29 | [Via Láctea acima de Tre Cime di Lavaredo, Tirol do Sul, na Itália (© Juan Romero/Cavan Images)](https://global.bing.com/th?id=OHR.MWDolomites_PT-BR7042965893_UHD.jpg) 
