@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-03 | [Monte Bromo, Java Oriental, na Indon��sia (© Bento Fotography/Getty Images)](https://global.bing.com/th?id=OHR.JavaBromo_PT-BR2056901966_UHD.jpg) 
+
 2023-04-02 | [Perereca javanesa (© kuritafsheen/Getty Images)](https://global.bing.com/th?id=OHR.FrogMonth_PT-BR8459718048_UHD.jpg) 
 
 2023-04-01 | [Rio Steyr, na Áustria (© guenterguni/Getty Images)](https://global.bing.com/th?id=OHR.SteyrRiver_PT-BR1509905208_UHD.jpg) 
