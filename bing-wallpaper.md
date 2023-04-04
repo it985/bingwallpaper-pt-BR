@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-05 | [Ponte Romana, em Córdova, na Espanha (© Jeremy Woodhouse/Getty Images)](https://global.bing.com/th?id=OHR.RomanBridge_PT-BR9293657431_UHD.jpg) 
+
 2023-04-04 | [Honaunau National Park Sanctuary, Big Island,no Havaí (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.HonaunauNP_PT-BR9038463987_UHD.jpg) 
 
 2023-04-03 | [Monte Bromo, Java Oriental, na Indon��sia (© Bento Fotography/Getty Images)](https://global.bing.com/th?id=OHR.JavaBromo_PT-BR2056901966_UHD.jpg) 
