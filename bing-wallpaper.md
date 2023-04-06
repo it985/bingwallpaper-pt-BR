@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-07 | [Lua nascendo, Tucson, no Arizona, nos EUA (© Tim Murphy/Shutterstock)](https://global.bing.com/th?id=OHR.ArizonaPinkMoon_PT-BR9957307655_UHD.jpg) 
+
 2023-04-06 | [Perdizes-pretas machos em Kuusamo, na Finlândia (© Markus Varesvuo/Minden Pictures)](https://global.bing.com/th?id=OHR.BlackGrouseLekking_PT-BR9678718945_UHD.jpg) 
 
 2023-04-05 | [Ponte Romana, em Córdova, na Espanha (© Jeremy Woodhouse/Getty Images)](https://global.bing.com/th?id=OHR.RomanBridge_PT-BR9293657431_UHD.jpg) 
