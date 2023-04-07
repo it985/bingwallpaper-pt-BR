@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-08 | [Bebês castores da Eurásia, na Finlândia (© Danny Green/Minden Pictures)](https://global.bing.com/th?id=OHR.KitsAspen_PT-BR8299899730_UHD.jpg) 
+
 2023-04-07 | [Lua nascendo, Tucson, no Arizona, nos EUA (© Tim Murphy/Shutterstock)](https://global.bing.com/th?id=OHR.ArizonaPinkMoon_PT-BR9957307655_UHD.jpg) 
 
 2023-04-06 | [Perdizes-pretas machos em Kuusamo, na Finlândia (© Markus Varesvuo/Minden Pictures)](https://global.bing.com/th?id=OHR.BlackGrouseLekking_PT-BR9678718945_UHD.jpg) 
