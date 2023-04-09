@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-10 | [Ovos de Páscoa da Lituânia (© fotomem/Getty Images)](https://global.bing.com/th?id=OHR.LithuanianEggs_PT-BR5718719505_UHD.jpg) 
+
 2023-04-09 | [Calçada dos Gigantes, Condado de Antrim, na Irlanda do Norte (© Dieter Meyrl/Getty Images)](https://global.bing.com/th?id=OHR.NIrelandGiants_PT-BR4823231390_UHD.jpg) 
 
 2023-04-08 | [Bebês castores da Eurásia, na Finlândia (© Danny Green/Minden Pictures)](https://global.bing.com/th?id=OHR.KitsAspen_PT-BR8299899730_UHD.jpg) 
