@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-11 | [Família de elefantes no Parque Nacional Amboseli, no Quênia (© Diana Robinson/Getty Images)](https://global.bing.com/th?id=OHR.ElephantTwins_PT-BR7059740829_UHD.jpg) 
+
 2023-04-10 | [Ovos de Páscoa da Lituânia (© fotomem/Getty Images)](https://global.bing.com/th?id=OHR.LithuanianEggs_PT-BR5718719505_UHD.jpg) 
 
 2023-04-09 | [Calçada dos Gigantes, Condado de Antrim, na Irlanda do Norte (© Dieter Meyrl/Getty Images)](https://global.bing.com/th?id=OHR.NIrelandGiants_PT-BR4823231390_UHD.jpg) 
