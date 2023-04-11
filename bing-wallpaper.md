@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-12 | [Cataratas Mossy Grotto, Desfiladeiro do Rio Columbia, em Oregon (© Chase Dekker Wild-Life Images/Getty Images)](https://global.bing.com/th?id=OHR.MossyGrottoFalls_PT-BR8681744375_UHD.jpg) 
+
 2023-04-11 | [Família de elefantes no Parque Nacional Amboseli, no Quênia (© Diana Robinson/Getty Images)](https://global.bing.com/th?id=OHR.ElephantTwins_PT-BR7059740829_UHD.jpg) 
 
 2023-04-10 | [Ovos de Páscoa da Lituânia (© fotomem/Getty Images)](https://global.bing.com/th?id=OHR.LithuanianEggs_PT-BR5718719505_UHD.jpg) 
