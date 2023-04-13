@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-14 | [Parque Hitsujiyama, Prefeitura de Saitama, no Japão (© Takashi Images/Shutterstock)](https://global.bing.com/th?id=OHR.PhloxSubulata_PT-BR2187930252_UHD.jpg) 
+
 2023-04-13 | [Terra vista da Estação Espacial Internacional (© Tim Peake/ESA/NASA via Getty Images)](https://global.bing.com/th?id=OHR.EuropeFromISS_PT-BR8580836048_UHD.jpg) 
 
 2023-04-12 | [Cataratas Mossy Grotto, Desfiladeiro do Rio Columbia, em Oregon (© Chase Dekker Wild-Life Images/Getty Images)](https://global.bing.com/th?id=OHR.MossyGrottoFalls_PT-BR8681744375_UHD.jpg) 
