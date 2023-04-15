@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-16 | ['Together' de Lorenzo Quinn, Grandes Pirâmides de Gizé, Cairo, no Egito (© Sima Diab/Getty Images)](https://global.bing.com/th?id=OHR.LorenzoQuinn_PT-BR1753082693_UHD.jpg) 
+
 2023-04-15 | [Estrelas do Mar Vermelho, Mar Mediterrâneo (© Hans Leijnse/Minden Pictures)](https://global.bing.com/th?id=OHR.RedSeaStars_PT-BR9156297625_UHD.jpg) 
 
 2023-04-14 | [Parque Hitsujiyama, Prefeitura de Saitama, no Japão (© Takashi Images/Shutterstock)](https://global.bing.com/th?id=OHR.PhloxSubulata_PT-BR2187930252_UHD.jpg) 
