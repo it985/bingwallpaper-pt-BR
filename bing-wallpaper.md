@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-17 | [Adelaide Dia Internacional de Solte sua Pipa, na Australia (© Andrey Moisseyev/Alamy)](https://global.bing.com/th?id=OHR.KiteDay_PT-BR2236604621_UHD.jpg) 
+
 2023-04-16 | ['Together' de Lorenzo Quinn, Grandes Pirâmides de Gizé, Cairo, no Egito (© Sima Diab/Getty Images)](https://global.bing.com/th?id=OHR.LorenzoQuinn_PT-BR1753082693_UHD.jpg) 
 
 2023-04-15 | [Estrelas do Mar Vermelho, Mar Mediterrâneo (© Hans Leijnse/Minden Pictures)](https://global.bing.com/th?id=OHR.RedSeaStars_PT-BR9156297625_UHD.jpg) 
