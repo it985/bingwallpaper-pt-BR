@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-18 | [Instalação de arte Haiku, Reais Jardins Botânicos de Kew, Londres, na Inglaterra (© Guy Bell/Alamy Live News)](https://global.bing.com/th?id=OHR.OneThousandSprings_PT-BR6434426927_UHD.jpg) 
+
 2023-04-17 | [Adelaide Dia Internacional de Solte sua Pipa, na Australia (© Andrey Moisseyev/Alamy)](https://global.bing.com/th?id=OHR.KiteDay_PT-BR2236604621_UHD.jpg) 
 
 2023-04-16 | ['Together' de Lorenzo Quinn, Grandes Pirâmides de Gizé, Cairo, no Egito (© Sima Diab/Getty Images)](https://global.bing.com/th?id=OHR.LorenzoQuinn_PT-BR1753082693_UHD.jpg) 
