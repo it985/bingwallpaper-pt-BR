@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-23 | [Raposa da ilha no Parque Nacional das Ilhas do Canal, na Califórnia, nos EUA (© Ian Shive/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.EarthDayFox_PT-BR4769845045_UHD.jpg) 
+
 2023-04-22 | [Prócida, Itália (© Sean Pavone/Shutterstock)](https://global.bing.com/th?id=OHR.ProcidaItaly_PT-BR4815511808_UHD.jpg) 
 
 2023-04-21 | [Camaleão-pantera no Parque Nacional Amber Mountain, Madagascar (© Christian Ziegler/Minden Pictures)](https://global.bing.com/th?id=OHR.PantherChameleon_PT-BR7376716625_UHD.jpg) 
