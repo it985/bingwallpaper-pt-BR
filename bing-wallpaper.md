@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-25 | [Adega da Floresta da Baviera, na Alemanha  (© Andreas Zerndl/Getty Images)](https://global.bing.com/th?id=OHR.FranconianWineCellar_PT-BR4973800707_UHD.jpg) 
+
 2023-04-24 | [Biblioteca Pública de Stuttgart, na Alemanha  (© Axel Brunst/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.StuttgartPublicLibrary_PT-BR4937823800_UHD.jpg) 
 
 2023-04-23 | [Raposa da ilha no Parque Nacional das Ilhas do Canal, na Califórnia, nos EUA (© Ian Shive/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.EarthDayFox_PT-BR4769845045_UHD.jpg) 
