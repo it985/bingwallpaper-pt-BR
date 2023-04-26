@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-27 | [Jacurutus calouros (© Michael Morse/Getty Images)](https://global.bing.com/th?id=OHR.GHOAudubonDay_PT-BR5342739946_UHD.jpg) 
+
 2023-04-26 | [Pinguins-de-Adélia na Antártica (© David Merron Photography/Getty Images)](https://global.bing.com/th?id=OHR.AdelieWPD_PT-BR5302212413_UHD.jpg) 
 
 2023-04-25 | [Adega da Floresta da Baviera, na Alemanha  (© Andreas Zerndl/Getty Images)](https://global.bing.com/th?id=OHR.FranconianWineCellar_PT-BR4973800707_UHD.jpg) 
