@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-01 | [Preservation Hall, Nova Orleans, Louisiana, nos EUA  (© Cosmo Condina North America/Alamy)](https://global.bing.com/th?id=OHR.ExteriorPreservationHall_PT-BR5718704073_UHD.jpg) 
+
 2023-04-30 | [Milky Way over Joshua Tree National Park, California (© Schroptschop/Getty Images)](https://global.bing.com/th?id=OHR.JTNPMilkyWay_PT-BR5635937343_UHD.jpg) 
 
 2023-04-29 | [Mariposa Grove no Parque Nacional de Yosemite, Califórnia, nos EUA  (© Orbon Alija/Getty Images)](https://global.bing.com/th?id=OHR.MariposaGrove_PT-BR5231629704_UHD.jpg) 
