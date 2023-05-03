@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-04 | [Wildebeests in the Maasai Mara, Kenya (© Matt Polski/Getty Images)](https://global.bing.com/th?id=OHR.ThreeWildebeest_PT-BR5590684985_UHD.jpg) 
+
 2023-05-03 | [Lagos Jöriseen nos Alpes Silvretta, na Suíça  (© Florin Baumann/Getty Images)](https://global.bing.com/th?id=OHR.KlostersSerneus_PT-BR5752952274_UHD.jpg) 
 
 2023-05-02 | [Ponte de Quebec sobre a parte inferior do rio São Lourenço, no Canadá  (© Ronald Santerre/Getty Images)](https://global.bing.com/th?id=OHR.QuebecCityBridge_PT-BR5681899847_UHD.jpg) 
