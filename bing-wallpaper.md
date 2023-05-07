@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-08 | [Filhote de foca, Ilha Lundy, Inglaterra (© Henley Spiers/Minden Pictures)](https://global.bing.com/th?id=OHR.SealLaughing_PT-BR3611435433_UHD.jpg) 
+
 2023-05-07 | [Azáleas reais em flor na montanha Hwangmaesan, Coreia do Sul (© Stock for you/Shutterstock)](https://global.bing.com/th?id=OHR.HwangmaesanAzaleas_PT-BR1848101696_UHD.jpg) 
 
 2023-05-06 | [Igreja de Nuestra Señora de los Remedios e Popocatépetl, Puebla, México (© Radius Images/Shutterstock)](https://global.bing.com/th?id=OHR.Popocatepetl_PT-BR1206870374_UHD.jpg) 
