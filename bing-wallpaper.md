@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-09 | [Delicate Arch, Arches National Park, Utah nos EUA (© Mark Brodkin Photography/Getty Images)](https://global.bing.com/th?id=OHR.TheChaps_PT-BR3805944610_UHD.jpg) 
+
 2023-05-08 | [Filhote de foca, Ilha Lundy, Inglaterra (© Henley Spiers/Minden Pictures)](https://global.bing.com/th?id=OHR.SealLaughing_PT-BR3611435433_UHD.jpg) 
 
 2023-05-07 | [Azáleas reais em flor na montanha Hwangmaesan, Coreia do Sul (© Stock for you/Shutterstock)](https://global.bing.com/th?id=OHR.HwangmaesanAzaleas_PT-BR1848101696_UHD.jpg) 
