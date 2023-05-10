@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-11 | [Farol de Cordouan, Royan, Charente, na França (© FRTimelapse/Getty Images)](https://global.bing.com/th?id=OHR.CordouanLighthouse_PT-BR4280996810_UHD.jpg) 
+
 2023-05-10 | [Atol de Kauehi, Arquipélago de Tuamotu, na Polinésia Francesa (© WaterFrame/Alamy)](https://global.bing.com/th?id=OHR.Atoll_PT-BR4064286054_UHD.jpg) 
 
 2023-05-09 | [Delicate Arch, Arches National Park, Utah nos EUA (© Mark Brodkin Photography/Getty Images)](https://global.bing.com/th?id=OHR.TheChaps_PT-BR3805944610_UHD.jpg) 
