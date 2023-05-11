@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-12 | [Henningsvær Stadium, Norway (© Morten Falch Sortland/Getty Images)](https://global.bing.com/th?id=OHR.FootballField_PT-BR4517916371_UHD.jpg) 
+
 2023-05-11 | [Farol de Cordouan, Royan, Charente, na França (© FRTimelapse/Getty Images)](https://global.bing.com/th?id=OHR.CordouanLighthouse_PT-BR4280996810_UHD.jpg) 
 
 2023-05-10 | [Atol de Kauehi, Arquipélago de Tuamotu, na Polinésia Francesa (© WaterFrame/Alamy)](https://global.bing.com/th?id=OHR.Atoll_PT-BR4064286054_UHD.jpg) 
