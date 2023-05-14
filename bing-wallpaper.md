@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-15 | [Cervo-de-cauda-branca e cervo recém-nascido, em Montana nos EUA (© Donald M. Jones/Minden Pictures)](https://global.bing.com/th?id=OHR.OdocoileusVirginianus_PT-BR5303938011_UHD.jpg) 
+
 2023-05-14 | [Pelicanos em Sonny Bono Salton Sea National Wildlife Refuge, na Califórnia (© David McNew/Getty Images)](https://global.bing.com/th?id=OHR.SonnyBonoPelicans_PT-BR5084592128_UHD.jpg) 
 
 2023-05-13 | [Lupina selvagem em roxo e azul (© silverjohn/Getty Images Plus)](https://global.bing.com/th?id=OHR.WildLupine_PT-BR4776568888_UHD.jpg) 
