@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-16 | [Morro Jable e Playa del Matorral, Fuerteventura, Ilhas Canárias, na Espanha (© Gavin Hellier/Getty Images)](https://global.bing.com/th?id=OHR.MorroJable_PT-BR5522198016_UHD.jpg) 
+
 2023-05-15 | [Cervo-de-cauda-branca e cervo recém-nascido, em Montana nos EUA (© Donald M. Jones/Minden Pictures)](https://global.bing.com/th?id=OHR.OdocoileusVirginianus_PT-BR5303938011_UHD.jpg) 
 
 2023-05-14 | [Pelicanos em Sonny Bono Salton Sea National Wildlife Refuge, na Califórnia (© David McNew/Getty Images)](https://global.bing.com/th?id=OHR.SonnyBonoPelicans_PT-BR5084592128_UHD.jpg) 
