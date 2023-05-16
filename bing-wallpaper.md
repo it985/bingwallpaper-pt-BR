@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-17 | [Canoa remando no Refúgio Nacional de Vida Selvagem de Okefenokee (© Brad Beck/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.AmericanWetlands_PT-BR5846493559_UHD.jpg) 
+
 2023-05-16 | [Morro Jable e Playa del Matorral, Fuerteventura, Ilhas Canárias, na Espanha (© Gavin Hellier/Getty Images)](https://global.bing.com/th?id=OHR.MorroJable_PT-BR5522198016_UHD.jpg) 
 
 2023-05-15 | [Cervo-de-cauda-branca e cervo recém-nascido, em Montana nos EUA (© Donald M. Jones/Minden Pictures)](https://global.bing.com/th?id=OHR.OdocoileusVirginianus_PT-BR5303938011_UHD.jpg) 
