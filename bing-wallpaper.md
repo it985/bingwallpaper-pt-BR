@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-21 | [Abelhas européias em Sheffield, na Inglaterra (© Deborah Vernon/Alamy)](https://global.bing.com/th?id=OHR.EuropeanHoneybee_PT-BR4239657418_UHD.jpg) 
+
 2023-05-20 | [Rinoceronte de Sumatra, Parque Nacional Way Kambas, na Indonésia (© Cyril Ruoso/Minden Pictures)](https://global.bing.com/th?id=OHR.SumatranRhino_PT-BR3675960886_UHD.jpg) 
 
 2023-05-19 | [Museo Soumaya, edifício Plaza Carso, Cidade do México, México (© Juan Romero/Alamy)](https://global.bing.com/th?id=OHR.MuseoSoumaya_PT-BR6724252759_UHD.jpg) 
