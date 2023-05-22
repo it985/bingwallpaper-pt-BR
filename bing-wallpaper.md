@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-23 | [Vulcão Arenal, Monteverde, na Costa Rica (© Kevin Wells/Getty Images)](https://global.bing.com/th?id=OHR.BiodiverseCostaRica_PT-BR5409439931_UHD.jpg) 
+
 2023-05-22 | [Rio Sena, em Paris, na França (© StockByM/Getty Images)](https://global.bing.com/th?id=OHR.PontdArcole_PT-BR4920312632_UHD.jpg) 
 
 2023-05-21 | [Abelhas européias em Sheffield, na Inglaterra (© Deborah Vernon/Alamy)](https://global.bing.com/th?id=OHR.EuropeanHoneybee_PT-BR4239657418_UHD.jpg) 
