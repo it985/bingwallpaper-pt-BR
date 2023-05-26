@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-27 | [Wat Sri Sawi no Parque Histórico de Sukhothai, na Tailândia (© Casper1774 Studio/Shutterstock)](https://global.bing.com/th?id=OHR.WatSriSawai_PT-BR6731580628_UHD.jpg) 
+
 2023-05-26 | [Saksun, nas Ilhas Faroé, na Dinamarca (© miroslav_1/Getty Images)](https://global.bing.com/th?id=OHR.SaksunFaroe_PT-BR6443520957_UHD.jpg) 
 
 2023-05-25 | [A Velha Fortaleza de Corfu, na Grécia (© Netfalls Remy Musser/Shutterstock)](https://global.bing.com/th?id=OHR.OldFortress_PT-BR6093588176_UHD.jpg) 
