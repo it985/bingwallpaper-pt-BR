@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-01 | [Filhote de lontra marinha, Prince William Sound, na Alasca (© Donald M. Jones/Minden Pictures)](https://global.bing.com/th?id=OHR.WorldOtterDay_PT-BR8489449093_UHD.jpg) 
+
 2023-05-31 | [Playa del Amor, Ilhas Marietas, Puerto Vallarta, no México (© ferrantraite/Getty Images)](https://global.bing.com/th?id=OHR.HiddenBeach_PT-BR5412203730_UHD.jpg) 
 
 2023-05-30 | [Grand Cul-de-Sac Marin, Parque Nacional de Guadalupe, Pequenas Antilhas (© Hemis/Alamy)](https://global.bing.com/th?id=OHR.Antilles_PT-BR7757709340_UHD.jpg) 
