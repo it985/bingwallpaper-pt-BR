@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-05 | [Wai'anapanapa State Park praia de areia preta, Maui, Havaí, EUA (© Matt Anderson Photography/Getty Images)](https://global.bing.com/th?id=OHR.MauiBeach_PT-BR5937841050_UHD.jpg) 
+
 2023-06-04 | [Trilha South Kaibab no Parque Nacional do Grand Canyon, Arizona (© Roman Khomlyak/Getty Images)](https://global.bing.com/th?id=OHR.SouthKaibabTrail_PT-BR5757407327_UHD.jpg) 
 
 2023-06-03 | [Gemsbok (Oryx gazella) em dunas de areia, Namíbia (© Sergey Gorshkov/Minden)](https://global.bing.com/th?id=OHR.GemsbokNamibia_PT-BR5415413384_UHD.jpg) 
