@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-11 | [Catedral do Porto, Portugal (© Reinhard Schmid/Huber/eStock Photo)](https://global.bing.com/th?id=OHR.PortugalDay_PT-BR8034817895_UHD.jpg) 
+
 2023-06-10 | [Balões de ar quente na Capadócia, Turquia (© Anton Petrus/Getty Images)](https://global.bing.com/th?id=OHR.BalloonsTurkey_PT-BR7705553978_UHD.jpg) 
 
 2023-06-09 | [Baleia jubarte (© Philip Thurston/Getty Images)](https://global.bing.com/th?id=OHR.PlayfulHumpback_PT-BR7330995168_UHD.jpg) 
