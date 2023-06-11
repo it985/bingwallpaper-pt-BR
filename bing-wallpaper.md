@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-12 | [Garça Goliath no Parque Nacional Kruger, África do Sul (© Johan Swanepoel/Alamy)](https://global.bing.com/th?id=OHR.GoliathHeron_PT-BR9417001385_UHD.jpg) 
+
 2023-06-11 | [Catedral do Porto, Portugal (© Reinhard Schmid/Huber/eStock Photo)](https://global.bing.com/th?id=OHR.PortugalDay_PT-BR8034817895_UHD.jpg) 
 
 2023-06-10 | [Balões de ar quente na Capadócia, Turquia (© Anton Petrus/Getty Images)](https://global.bing.com/th?id=OHR.BalloonsTurkey_PT-BR7705553978_UHD.jpg) 
