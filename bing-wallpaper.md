@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-14 | [Árvores de musgo espanhol sobre um calçadão no pântano Okefenokee, Folkston, Geórgia (© Emmer Photo/Alamy)](https://global.bing.com/th?id=OHR.OkefenokeeSwamp_PT-BR9993214300_UHD.jpg) 
+
 2023-06-12 | [Garça Goliath no Parque Nacional Kruger, África do Sul (© Johan Swanepoel/Alamy)](https://global.bing.com/th?id=OHR.GoliathHeron_PT-BR9417001385_UHD.jpg) 
 
 2023-06-11 | [Catedral do Porto, Portugal (© Reinhard Schmid/Huber/eStock Photo)](https://global.bing.com/th?id=OHR.PortugalDay_PT-BR8034817895_UHD.jpg) 
