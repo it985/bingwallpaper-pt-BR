@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-16 | [Vagalumes síncronos, Parque Nacional Great Smoky Mountains, Tennessee, EUA (© Floris Van Bruegel/Minden Pictures)](https://global.bing.com/th?id=OHR.SmokyFireflies_PT-BR0661449530_UHD.jpg) 
+
 2023-06-15 | [A cidade de Passau refletindo no rio Danúbio, Baviera, Alemanha (© Scott Wilson/Alamy)](https://global.bing.com/th?id=OHR.PassauSunsetJune_PT-BR1202861779_UHD.jpg) 
 
 2023-06-14 | [Árvores de musgo espanhol sobre um calçadão no pântano Okefenokee, Folkston, Geórgia (© Emmer Photo/Alamy)](https://global.bing.com/th?id=OHR.OkefenokeeSwamp_PT-BR9993214300_UHD.jpg) 
