@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-18 | ['Reme pela unidade' em San Diego, Califórnia, EUA  (© Brandon Colbert Photography/Getty Images)](https://global.bing.com/th?id=OHR.SurfSanDiego_PT-BR0003573569_UHD.jpg) 
+
 2023-06-17 | [Tartaruga-de-pente nada perto de Akajima, Okinawa, Japão (© Robert Mallon/Getty Images)](https://global.bing.com/th?id=OHR.HawksbillTurtle_PT-BR9425456104_UHD.jpg) 
 
 2023-06-16 | [Vagalumes síncronos, Parque Nacional Great Smoky Mountains, Tennessee, EUA (© Floris Van Bruegel/Minden Pictures)](https://global.bing.com/th?id=OHR.SmokyFireflies_PT-BR0661449530_UHD.jpg) 
