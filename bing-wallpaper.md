@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-29 | [Bandeiras de arco-íris e confetes, Reykjavík, Islândia (© Arctic-Images/Getty Images)](https://global.bing.com/th?id=OHR.PrideIceland_PT-BR9247748028_UHD.jpg) 
+
 2023-06-28 | [Sedona, Arizona (© Jonathan Ross/Getty Images)](https://global.bing.com/th?id=OHR.SedonaSunset_PT-BR8929237234_UHD.jpg) 
 
 2023-06-27 | [Chateau de Villandry e seu jardim, Vale do Loire, França (© VLADJ55/Shutterstock)](https://global.bing.com/th?id=OHR.VillandryGarden_PT-BR8698616986_UHD.jpg) 
