@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-30 | [Ilhas Banyak, Sumatra, Indonésia  (© fbxx/Getty Images)](https://global.bing.com/th?id=OHR.BanyakIslands_PT-BR9478942704_UHD.jpg) 
+
 2023-06-29 | [Bandeiras de arco-íris e confetes, Reykjavík, Islândia (© Arctic-Images/Getty Images)](https://global.bing.com/th?id=OHR.PrideIceland_PT-BR9247748028_UHD.jpg) 
 
 2023-06-28 | [Sedona, Arizona (© Jonathan Ross/Getty Images)](https://global.bing.com/th?id=OHR.SedonaSunset_PT-BR8929237234_UHD.jpg) 
