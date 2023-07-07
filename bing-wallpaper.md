@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-08 | [Vagens de cacau de Ambanja, Madagascar (© pierivb/Getty Images)](https://global.bing.com/th?id=OHR.CocoaPods_PT-BR0249334987_UHD.jpg) 
+
 2023-07-07 | [Pinguins Rockhopper do Sul, Ilhas Malvinas (© Tony Beck/Getty Images)](https://global.bing.com/th?id=OHR.KissingPenguins_PT-BR9632546224_UHD.jpg) 
 
 2023-07-06 | [Praia de Porto Timoni, Corfu, Grécia (© nantonov/Getty Images)](https://global.bing.com/th?id=OHR.CorfuBeach_PT-BR9062903399_UHD.jpg) 
