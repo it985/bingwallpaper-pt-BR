@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-10 | [Circuito do rio Moselle perto de Kröv, Alemanha (© Jorg Greuel/Getty Images)](https://global.bing.com/th?id=OHR.MoselleRiver_PT-BR0973965999_UHD.jpg) 
+
 2023-07-09 | [Mildred B. Cooper Memorial Chapel, Bella Vista, Arkansas, EUA (© Eddie Brady/Getty Images)](https://global.bing.com/th?id=OHR.CooperChapel_PT-BR0663109436_UHD.jpg) 
 
 2023-07-08 | [Vagens de cacau de Ambanja, Madagascar (© pierivb/Getty Images)](https://global.bing.com/th?id=OHR.CocoaPods_PT-BR0249334987_UHD.jpg) 
