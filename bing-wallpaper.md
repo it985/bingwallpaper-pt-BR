@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-12 | [Região Administrativa Especial de Hong Kong (© leungchopan/Getty Images)](https://global.bing.com/th?id=OHR.WorldPopDay_PT-BR1851252884_UHD.jpg) 
+
 2023-07-11 | [Campo de lavanda, Somerset, Inglaterra (© Doug Chinnery/Getty Images)](https://global.bing.com/th?id=OHR.SomersetLavender_PT-BR1413116604_UHD.jpg) 
 
 2023-07-10 | [Circuito do rio Moselle perto de Kröv, Alemanha (© Jorg Greuel/Getty Images)](https://global.bing.com/th?id=OHR.MoselleRiver_PT-BR0973965999_UHD.jpg) 
