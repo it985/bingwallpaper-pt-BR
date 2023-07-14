@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-15 | [Tubarões de recife Blacktip, Maldivas (© Filippo Bacci/Getty Images)](https://global.bing.com/th?id=OHR.BlacktipSharks_PT-BR2061321594_UHD.jpg) 
+
 2023-07-14 | [Zhang Ye, Geoparque Nacional, Gansu, China (© TONNAJA/Getty Images)](https://global.bing.com/th?id=OHR.ZhangyeGeopark_PT-BR2713024275_UHD.jpg) 
 
 2023-07-13 | [Barra de areia na Reserva Natural da Praia de Nakupenda, Zanzibar, Tanzânia  (© Lubos Paukeje/Alamy)](https://global.bing.com/th?id=OHR.NakupendaBeach_PT-BR2414643344_UHD.jpg) 
