@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-16 | [Castelmezzano, na Itália (© Rudy Balasko/Shutterstock)](https://global.bing.com/th?id=OHR.CastelmazzanoSunrise_PT-BR2465797597_UHD.jpg) 
+
 2023-07-15 | [Tubarões de recife Blacktip, Maldivas (© Filippo Bacci/Getty Images)](https://global.bing.com/th?id=OHR.BlacktipSharks_PT-BR2061321594_UHD.jpg) 
 
 2023-07-14 | [Zhang Ye, Geoparque Nacional, Gansu, China (© TONNAJA/Getty Images)](https://global.bing.com/th?id=OHR.ZhangyeGeopark_PT-BR2713024275_UHD.jpg) 
