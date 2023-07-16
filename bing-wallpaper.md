@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-17 | [Bear Hole Brook, Montanhas Catskill, Nova Iorque (© GummyBone/Getty Images)](https://global.bing.com/th?id=OHR.BearHoleBrook_PT-BR3089984562_UHD.jpg) 
+
 2023-07-16 | [Castelmezzano, na Itália (© Rudy Balasko/Shutterstock)](https://global.bing.com/th?id=OHR.CastelmazzanoSunrise_PT-BR2465797597_UHD.jpg) 
 
 2023-07-15 | [Tubarões de recife Blacktip, Maldivas (© Filippo Bacci/Getty Images)](https://global.bing.com/th?id=OHR.BlacktipSharks_PT-BR2061321594_UHD.jpg) 
