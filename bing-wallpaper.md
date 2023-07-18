@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-19 | [Grande calau, Khao Yai National Park, Tailândia (© kajornyot wildlife photography/Shutterstock)](https://global.bing.com/th?id=OHR.BucerosBicornis_PT-BR4126755280_UHD.jpg) 
+
 2023-07-18 | [Castelo Cloughoughter em Lough Oughter, Condado de Cavan, Irlanda (© 4H4 PH/Shutterstock)](https://global.bing.com/th?id=OHR.CavanCastle_PT-BR3830241244_UHD.jpg) 
 
 2023-07-17 | [Bear Hole Brook, Montanhas Catskill, Nova Iorque (© GummyBone/Getty Images)](https://global.bing.com/th?id=OHR.BearHoleBrook_PT-BR3089984562_UHD.jpg) 
