@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-22 | [Ponte Storseisundet, Atlantic Ocean Road, Noruega (© Morten Falch Sortland/Getty Images)](https://global.bing.com/th?id=OHR.BridgeNorway_PT-BR6731279312_UHD.jpg) 
+
 2023-07-21 | [A lua vista da espaçonave Orion da missão Artemis da NASA  (© NASA)](https://global.bing.com/th?id=OHR.MoonDayArtemis_PT-BR4775427862_UHD.jpg) 
 
 2023-07-20 | [Lago Crescente em Dunhuang, na China (© R7 Photo/Shutterstock)](https://global.bing.com/th?id=OHR.CrescentLake_PT-BR4521081721_UHD.jpg) 
