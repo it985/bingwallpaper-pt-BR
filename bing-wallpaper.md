@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-23 | [Rede de acampamento em um cipreste careca, Flórida, nos EUA (© Mac Stone/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.HammockDay_PT-BR7138304791_UHD.jpg) 
+
 2023-07-22 | [Ponte Storseisundet, Atlantic Ocean Road, Noruega (© Morten Falch Sortland/Getty Images)](https://global.bing.com/th?id=OHR.BridgeNorway_PT-BR6731279312_UHD.jpg) 
 
 2023-07-21 | [A lua vista da espaçonave Orion da missão Artemis da NASA  (© NASA)](https://global.bing.com/th?id=OHR.MoonDayArtemis_PT-BR4775427862_UHD.jpg) 
