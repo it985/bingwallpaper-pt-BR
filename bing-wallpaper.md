@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-24 | [Propriedade do Chá de Edimburgo, Nuwara Elijah, Sri Lanka  (© Jeremy Woodhouse/Getty Images)](https://global.bing.com/th?id=OHR.TeaEstate_PT-BR7362336385_UHD.jpg) 
+
 2023-07-23 | [Rede de acampamento em um cipreste careca, Flórida, nos EUA (© Mac Stone/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.HammockDay_PT-BR7138304791_UHD.jpg) 
 
 2023-07-22 | [Ponte Storseisundet, Atlantic Ocean Road, Noruega (© Morten Falch Sortland/Getty Images)](https://global.bing.com/th?id=OHR.BridgeNorway_PT-BR6731279312_UHD.jpg) 
