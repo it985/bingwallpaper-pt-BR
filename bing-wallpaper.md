@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-26 | [Lagoa Torrevieja, Alicante, na Espanha (© Juan Maria Coy Vergara/Getty Images)](https://global.bing.com/th?id=OHR.LasLagunas_PT-BR7962535557_UHD.jpg) 
+
 2023-07-25 | [Zebras no Parque Nacional Tarangire, na Tanzânia  (© cinoby/Getty Images)](https://global.bing.com/th?id=OHR.ZebraCousins_PT-BR7618632224_UHD.jpg) 
 
 2023-07-24 | [Propriedade do Chá de Edimburgo, Nuwara Elijah, Sri Lanka  (© Jeremy Woodhouse/Getty Images)](https://global.bing.com/th?id=OHR.TeaEstate_PT-BR7362336385_UHD.jpg) 
