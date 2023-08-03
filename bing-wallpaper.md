@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-04 | [Reserva Natural Zelenci, Eslovênia (© Andrey Danilovich/Getty Images)](https://global.bing.com/th?id=OHR.ZelenciSprings_PT-BR2064336858_UHD.jpg) 
+
 2023-08-03 | [Colina de arenito no Parque Nacional Capitol Reef, Utah, EUA  (© Amazing Aerial Premium/Shutterstock)](https://global.bing.com/th?id=OHR.CapitolButte_PT-BR1710363839_UHD.jpg) 
 
 2023-08-02 | [Mount Foraker visto de Denali, Denali National Park, Alasca, EUA (© Andrew Peacock/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.DenaliClimber_PT-BR1512476985_UHD.jpg) 
