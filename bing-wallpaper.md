@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-08 | [Farol da Ilha Bodie, Nags Head, Carolina do Norte, EUA (© Michael Ver Sprill/Getty Images)](https://global.bing.com/th?id=OHR.BodieNC_PT-BR3349046886_UHD.jpg) 
+
 2023-08-07 | [Kagami-ike (Lagoa do Espelho), Nagano, Japão © Shoji Fujita/Getty Images)](https://global.bing.com/th?id=OHR.NaganoPond_PT-BR2909637050_UHD.jpg) 
 
 2023-08-06 | [Papagaio do Atlântico, Islândia  (© Peter Hering/Minden Pictures)](https://global.bing.com/th?id=OHR.AtlanticPuffin_PT-BR2602630164_UHD.jpg) 
