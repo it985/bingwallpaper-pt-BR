@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-09 | [Rodovias em Taipei, Taiwan (© Tavarius/Shutterstock)](https://global.bing.com/th?id=OHR.InfinityTaipei_PT-BR5659218088_UHD.jpg) 
+
 2023-08-08 | [Farol da Ilha Bodie, Nags Head, Carolina do Norte, EUA (© Michael Ver Sprill/Getty Images)](https://global.bing.com/th?id=OHR.BodieNC_PT-BR3349046886_UHD.jpg) 
 
 2023-08-07 | [Kagami-ike (Lagoa do Espelho), Nagano, Japão © Shoji Fujita/Getty Images)](https://global.bing.com/th?id=OHR.NaganoPond_PT-BR2909637050_UHD.jpg) 
