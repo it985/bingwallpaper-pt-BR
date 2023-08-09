@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-10 | [Arte indígena, Centro de Arte Ngaruwanajirri, Wurrumiyanga, Ilha Bathurst, Austrália (© Robert Wyatt/Alamy)](https://global.bing.com/th?id=OHR.BathurstArt_PT-BR5938630917_UHD.jpg) 
+
 2023-08-09 | [Rodovias em Taipei, Taiwan (© Tavarius/Shutterstock)](https://global.bing.com/th?id=OHR.InfinityTaipei_PT-BR5659218088_UHD.jpg) 
 
 2023-08-08 | [Farol da Ilha Bodie, Nags Head, Carolina do Norte, EUA (© Michael Ver Sprill/Getty Images)](https://global.bing.com/th?id=OHR.BodieNC_PT-BR3349046886_UHD.jpg) 
