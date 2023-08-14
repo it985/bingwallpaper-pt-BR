@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-15 | [Lagartixa minúscula na lança da folha (© Darren Greenwood/Alamy)](https://global.bing.com/th?id=OHR.GeckoLeaf_PT-BR4941282205_UHD.jpg) 
+
 2023-08-14 | [Chuva de meteoros Perseidas, Cottonwood Canyon State Park, Oregon, nos EUA (© Joshua Meador/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.PerseidsOregon_PT-BR3992857450_UHD.jpg) 
 
 2023-08-13 | [Família de elefantes no Parque Nacional Amboseli, no Quênia (© Ibrahim Suha Derbent/Getty Images)](https://global.bing.com/th?id=OHR.ThreeElephants_PT-BR3742812979_UHD.jpg) 
