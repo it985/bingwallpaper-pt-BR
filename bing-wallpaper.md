@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-16 | [Piazza IX Aprile, Taormina, Sicília, na Itália (© rudi1976/Alamy)](https://global.bing.com/th?id=OHR.TaorminaSquare_PT-BR4606680461_UHD.jpg) 
+
 2023-08-15 | [Lagartixa minúscula na lança da folha (© Darren Greenwood/Alamy)](https://global.bing.com/th?id=OHR.GeckoLeaf_PT-BR4941282205_UHD.jpg) 
 
 2023-08-14 | [Chuva de meteoros Perseidas, Cottonwood Canyon State Park, Oregon, nos EUA (© Joshua Meador/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.PerseidsOregon_PT-BR3992857450_UHD.jpg) 
