@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-18 | [Camelos no deserto, Emirados Árabes Unidos (© Amazing Aerial Premium/Shutterstock)](https://global.bing.com/th?id=OHR.CamelsAbove_PT-BR2394632603_UHD.jpg) 
+
 2023-08-17 | [Seven Mile Bridge em Key West, Flórida, nos EUA (© Evgeny Vasenev/Cavan Images)](https://global.bing.com/th?id=OHR.KeyWestBridge_PT-BR4840240790_UHD.jpg) 
 
 2023-08-16 | [Piazza IX Aprile, Taormina, Sicília, na Itália (© rudi1976/Alamy)](https://global.bing.com/th?id=OHR.TaorminaSquare_PT-BR4606680461_UHD.jpg) 
