@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-19 | ['Montanhas Avatar', Parque Florestal Nacional de Zhangjiajie, China (© Amazing Aerial Premium/Shutterstock)](https://global.bing.com/th?id=OHR.AvatarMountain_PT-BR6129685721_UHD.jpg) 
+
 2023-08-18 | [Camelos no deserto, Emirados Árabes Unidos (© Amazing Aerial Premium/Shutterstock)](https://global.bing.com/th?id=OHR.CamelsAbove_PT-BR2394632603_UHD.jpg) 
 
 2023-08-17 | [Seven Mile Bridge em Key West, Flórida, nos EUA (© Evgeny Vasenev/Cavan Images)](https://global.bing.com/th?id=OHR.KeyWestBridge_PT-BR4840240790_UHD.jpg) 
