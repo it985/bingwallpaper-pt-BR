@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-20 | [Esquilo olhando na lente de uma câmera (© Alfredo Piedrafita/Getty Images)](https://global.bing.com/th?id=OHR.CameraSquirrel_PT-BR6385198760_UHD.jpg) 
+
 2023-08-19 | ['Montanhas Avatar', Parque Florestal Nacional de Zhangjiajie, China (© Amazing Aerial Premium/Shutterstock)](https://global.bing.com/th?id=OHR.AvatarMountain_PT-BR6129685721_UHD.jpg) 
 
 2023-08-18 | [Camelos no deserto, Emirados Árabes Unidos (© Amazing Aerial Premium/Shutterstock)](https://global.bing.com/th?id=OHR.CamelsAbove_PT-BR2394632603_UHD.jpg) 
