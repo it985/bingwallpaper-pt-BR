@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-24 | [Cachoeira Skógafoss, na Islândia (© Maridav/Shutterstock)](https://global.bing.com/th?id=OHR.SkogafossWaterfall_PT-BR7394704213_UHD.jpg) 
+
 2023-08-23 | [Anfiteatro de El Jem, na Tunísia (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.TunisiaAmphitheatre_PT-BR7158376086_UHD.jpg) 
 
 2023-08-22 | [Lago Esmeralda, South Klondike Highway, Yukon, no Canadá (© artherng/Getty Images)](https://global.bing.com/th?id=OHR.EmeraldLakeYukon_PT-BR6870373450_UHD.jpg) 
