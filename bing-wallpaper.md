@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-27 | [Catedral de Berlim e Ilha dos Museus, Berlim, Alemanha (© Rudy Balasko/Shutterstock)](https://global.bing.com/th?id=OHR.MuseumIsland_PT-BR8963448703_UHD.jpg) 
+
 2023-08-26 | [Lower Yellowstone Falls, Parque Nacional de Yellowstone, Wyoming (© Tim Fitzharris/Minden Pictures)](https://global.bing.com/th?id=OHR.YellowstoneFalls_PT-BR9098060623_UHD.jpg) 
 
 2023-08-25 | [Shark Fin Cove, Davenport, Califórnia, nos EUA (© Jeff Lewis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SharkFinCove_PT-BR7883835575_UHD.jpg) 
