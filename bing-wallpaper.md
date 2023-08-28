@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-29 | [Forte Lovrijenac, West Harbor, Dubrovnik, Croácia (© Benny Marty/Shutterstock)](https://global.bing.com/th?id=OHR.DubrovnikHarbor_PT-BR0322375013_UHD.jpg) 
+
 2023-08-28 | [Seongsan Ilchulbong, um cone de tufo na Ilha de Jeju, Coreia do Sul (© Quynh Anh Nguyen/Getty Images)](https://global.bing.com/th?id=OHR.JejuIsland_PT-BR9709424448_UHD.jpg) 
 
 2023-08-27 | [Catedral de Berlim e Ilha dos Museus, Berlim, Alemanha (© Rudy Balasko/Shutterstock)](https://global.bing.com/th?id=OHR.MuseumIsland_PT-BR8963448703_UHD.jpg) 
