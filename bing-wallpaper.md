@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-30 | [Bisão Americano, Parque Nacional Grand Teton, Wyoming, EUA (© Enrique Aguirre Aves/Getty Images)](https://global.bing.com/th?id=OHR.TetonBison_PT-BR0402928868_UHD.jpg) 
+
 2023-08-29 | [Forte Lovrijenac, West Harbor, Dubrovnik, Croácia (© Benny Marty/Shutterstock)](https://global.bing.com/th?id=OHR.DubrovnikHarbor_PT-BR0322375013_UHD.jpg) 
 
 2023-08-28 | [Seongsan Ilchulbong, um cone de tufo na Ilha de Jeju, Coreia do Sul (© Quynh Anh Nguyen/Getty Images)](https://global.bing.com/th?id=OHR.JejuIsland_PT-BR9709424448_UHD.jpg) 
