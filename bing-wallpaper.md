@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-01 | [Cactos Saguaro, Monumento Nacional Ironwood, Arizona (© Jack Dykinga/Minden Pictures)](https://global.bing.com/th?id=OHR.IronwoodCactus_PT-BR6649967427_UHD.jpg) 
+
 2023-08-31 | [Tubarão-baleia, Ningaloo Reef, Austrália Ocidental (© Jason Edwards/Getty Images)](https://global.bing.com/th?id=OHR.NingalooShark_PT-BR6162667843_UHD.jpg) 
 
 2023-08-30 | [Bisão Americano, Parque Nacional Grand Teton, Wyoming, EUA (© Enrique Aguirre Aves/Getty Images)](https://global.bing.com/th?id=OHR.TetonBison_PT-BR0402928868_UHD.jpg) 
