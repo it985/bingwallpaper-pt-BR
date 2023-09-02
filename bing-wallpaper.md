@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-03 | [Beija-flor de Allen, Santa Cruz, Califórnia, EUA (© mallardg500/Getty Images)](https://global.bing.com/th?id=OHR.TinyHummer_PT-BR7642539069_UHD.jpg) 
+
 2023-09-02 | [Cogumelo de cauda de peru, Brevard, Carolina do Norte, EUA (© Bill Gozansky/Alamy)](https://global.bing.com/th?id=OHR.TurkeyTailMush_PT-BR7169836000_UHD.jpg) 
 
 2023-09-01 | [Cactos Saguaro, Monumento Nacional Ironwood, Arizona (© Jack Dykinga/Minden Pictures)](https://global.bing.com/th?id=OHR.IronwoodCactus_PT-BR6649967427_UHD.jpg) 
