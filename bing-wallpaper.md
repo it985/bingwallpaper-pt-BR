@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-05 | [Pântanos de Bourges, França (© Tuul & Bruno Morandi/Getty Images)](https://global.bing.com/th?id=OHR.BourgesMarsh_PT-BR0624704700_UHD.jpg) 
+
 2023-09-04 | [Vista aérea de Manhattan, Nova York, EUA (© Wojtek Zagorski/Getty Images)](https://global.bing.com/th?id=OHR.ManhattanAerial_PT-BR8149904534_UHD.jpg) 
 
 2023-09-03 | [Beija-flor de Allen, Santa Cruz, Califórnia, EUA (© mallardg500/Getty Images)](https://global.bing.com/th?id=OHR.TinyHummer_PT-BR7642539069_UHD.jpg) 
