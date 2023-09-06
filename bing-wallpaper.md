@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-07 | [Antigo porto veneziano, Rethymno, Ilha de Creta, Grécia (© Gatsi/Getty Images)](https://global.bing.com/th?id=OHR.CreteHarbor_PT-BR1581901908_UHD.jpg) 
+
 2023-09-06 | [Monte Segla, Ilha Senja, Troms e Finnmark, Noruega (© imageBROKER/Moritz Wolf/Getty Images)](https://global.bing.com/th?id=OHR.MountSegla_PT-BR1076909696_UHD.jpg) 
 
 2023-09-05 | [Pântanos de Bourges, França (© Tuul & Bruno Morandi/Getty Images)](https://global.bing.com/th?id=OHR.BourgesMarsh_PT-BR0624704700_UHD.jpg) 
