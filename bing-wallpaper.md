@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-09 | [As casas do circo em Bath, Somerset, Inglaterra (© Gavin Hellier/Getty Images)](https://global.bing.com/th?id=OHR.BathCircus_PT-BR8962736983_UHD.jpg) 
+
 2023-09-08 | [Ipiranga, São Paulo, Brasil (© Photo by filipefrazao/Getty Images)](https://global.bing.com/th?id=OHR.MonumentoIpiranga_PT-BR3590337434_UHD.jpg) 
 
 2023-09-07 | [Antigo porto veneziano, Rethymno, Ilha de Creta, Grécia (© Gatsi/Getty Images)](https://global.bing.com/th?id=OHR.CreteHarbor_PT-BR1581901908_UHD.jpg) 
