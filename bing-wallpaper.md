@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-12 | [Nascer do sol em um vinhedo em Bordeaux, França (© Esperanza33/Getty Images)](https://global.bing.com/th?id=OHR.MarathonMedoc_PT-BR1559256786_UHD.jpg) 
+
 2023-09-11 | [Casal de morsas no mar em Svalbard, Noruega (© Mark Smith/Getty Images)](https://global.bing.com/th?id=OHR.WalrusSvalbard_PT-BR0496764214_UHD.jpg) 
 
 2023-09-10 | [Templo Wat Chaiwatthanaram, Parque Histórico de Ayutthaya, Tailândia (© Weerasak Saeku/Getty Images)](https://global.bing.com/th?id=OHR.AyutthayaTemple_PT-BR9714434694_UHD.jpg) 
