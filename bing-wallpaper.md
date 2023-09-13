@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-14 | [Templos em Hemakuta Hill, Hampi, Karnataka, Índia (© Images of india/Alamy)](https://global.bing.com/th?id=OHR.HemakutaHill_PT-BR7948471719_UHD.jpg) 
+
 2023-09-13 | [Mar do Norte ao pôr do sol, Norddorf, Ilha Amrum, Alemanha (© Frederick Doerschem/Getty Images)](https://global.bing.com/th?id=OHR.NorthSeaStairs_PT-BR3028511993_UHD.jpg) 
 
 2023-09-12 | [Nascer do sol em um vinhedo em Bordeaux, França (© Esperanza33/Getty Images)](https://global.bing.com/th?id=OHR.MarathonMedoc_PT-BR1559256786_UHD.jpg) 
