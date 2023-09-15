@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-16 | [Pôr do sol no Glenariff Forest Park, Condado de Antrim, na Irlanda (© Peter Zelei/Getty Images)](https://global.bing.com/th?id=OHR.GlenariffForest_PT-BR9967588359_UHD.jpg) 
+
 2023-09-15 | [Cavalos de Przewalski, Parque Nacional Hustai, Mongólia (© Ondrej Prosicky/Shutterstock)](https://global.bing.com/th?id=OHR.MongoliaHorses_PT-BR8973116827_UHD.jpg) 
 
 2023-09-14 | [Templos em Hemakuta Hill, Hampi, Karnataka, Índia (© Images of india/Alamy)](https://global.bing.com/th?id=OHR.HemakutaHill_PT-BR7948471719_UHD.jpg) 
