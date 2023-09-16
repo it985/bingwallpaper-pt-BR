@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-17 | [Passo Splügen, Grisões, Suíça (© Roberto Moiola/Getty Images)](https://global.bing.com/th?id=OHR.SplugenPass_PT-BR0721190806_UHD.jpg) 
+
 2023-09-16 | [Pôr do sol no Glenariff Forest Park, Condado de Antrim, na Irlanda (© Peter Zelei/Getty Images)](https://global.bing.com/th?id=OHR.GlenariffForest_PT-BR9967588359_UHD.jpg) 
 
 2023-09-15 | [Cavalos de Przewalski, Parque Nacional Hustai, Mongólia (© Ondrej Prosicky/Shutterstock)](https://global.bing.com/th?id=OHR.MongoliaHorses_PT-BR8973116827_UHD.jpg) 
