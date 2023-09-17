@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-18 | [Florescimento das árvores de Piuva Rosa no Pantanal Norte, Brasil (© Octavio Campos Salles/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.PiuvaRosa_PT-BR7653122974_UHD.jpg) 
+
 2023-09-17 | [Passo Splügen, Grisões, Suíça (© Roberto Moiola/Getty Images)](https://global.bing.com/th?id=OHR.SplugenPass_PT-BR0721190806_UHD.jpg) 
 
 2023-09-16 | [Pôr do sol no Glenariff Forest Park, Condado de Antrim, na Irlanda (© Peter Zelei/Getty Images)](https://global.bing.com/th?id=OHR.GlenariffForest_PT-BR9967588359_UHD.jpg) 
