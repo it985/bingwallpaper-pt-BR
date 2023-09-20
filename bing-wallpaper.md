@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-21 | [Aqueduto de inspiração romana, Arkadia Park, Polônia (© PATSTOCK/Getty Images)](https://global.bing.com/th?id=OHR.ArkadiaPark_PT-BR4736119356_UHD.jpg) 
+
 2023-09-20 | [Uma barraca de cerveja na Oktoberfest em Theresienwiese, Munique, Alemanha (© Peter Kneffel/picture alliance via Getty Images)](https://global.bing.com/th?id=OHR.OktoberfestWorkers_PT-BR4293032455_UHD.jpg) 
 
 2023-09-19 | [Via Láctea sobre o Parque Natural do Sudoeste Alentejano e Costa Vicentina, Portugal (© Daniel Garrido/Getty Images)](https://global.bing.com/th?id=OHR.MilkyWayPortugal_PT-BR3876107182_UHD.jpg) 
