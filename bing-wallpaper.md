@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-23 | [Machos de rinoceronte branco do sul, Shamwari Private Game Reserve, África do Sul (© David Silverman/Getty Images)](https://global.bing.com/th?id=OHR.ShamwariRhino_PT-BR2578968454_UHD.jpg) 
+
 2023-09-22 | [Copaiba - Brazil (© MarcosMartinezSanchez/GettyImages)](https://global.bing.com/th?id=OHR.BrazilCopaiba_PT-BR7420293329_UHD.jpg) 
 
 2023-09-21 | [Aqueduto de inspiração romana, Arkadia Park, Polônia (© PATSTOCK/Getty Images)](https://global.bing.com/th?id=OHR.ArkadiaPark_PT-BR4736119356_UHD.jpg) 
