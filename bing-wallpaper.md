@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-25 | [O rio Fraser perto do Monte Robson, Colúmbia Britânica, Canadá (© phototropic/Getty Images)](https://global.bing.com/th?id=OHR.FraserRiverBC_PT-BR4935224274_UHD.jpg) 
+
 2023-09-24 | [Árvores de choupo e arenito vermelho em Coyote Gulch, Glen Canyon National Recreation Area, Utah, EUA (© Stephen Matera/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.CottonwoodCanyon_PT-BR2979568032_UHD.jpg) 
 
 2023-09-23 | [Machos de rinoceronte branco do sul, Shamwari Private Game Reserve, África do Sul (© David Silverman/Getty Images)](https://global.bing.com/th?id=OHR.ShamwariRhino_PT-BR2578968454_UHD.jpg) 
