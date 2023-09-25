@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-26 | [Lontra marinha em Bartlett Cove, Parque Nacional e Reserva de Glacier Bay, Alasca, EUA (© Andrew Peacock/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.GlacierBayOtter_PT-BR5509451113_UHD.jpg) 
+
 2023-09-25 | [O rio Fraser perto do Monte Robson, Colúmbia Britânica, Canadá (© phototropic/Getty Images)](https://global.bing.com/th?id=OHR.FraserRiverBC_PT-BR4935224274_UHD.jpg) 
 
 2023-09-24 | [Árvores de choupo e arenito vermelho em Coyote Gulch, Glen Canyon National Recreation Area, Utah, EUA (© Stephen Matera/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.CottonwoodCanyon_PT-BR2979568032_UHD.jpg) 
