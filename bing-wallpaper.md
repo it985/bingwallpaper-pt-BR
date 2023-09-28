@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-29 | [Navio porta-contêineres perto de um porto comercial na Tailândia (© Suriyapong Thongsawang/Getty Images)](https://global.bing.com/th?id=OHR.MaritimeDay_PT-BR6479092304_UHD.jpg) 
+
 2023-09-28 | [A trilha Via Krupp na ilha de Capri, Itália (© Mikolaj Niemczewski/Shutterstock)](https://global.bing.com/th?id=OHR.CapriKrupp_PT-BR6134486389_UHD.jpg) 
 
 2023-09-27 | [Estação Da Luz, São Paulo, Brasil (© Carlos Alkmin/Getty Images)](https://global.bing.com/th?id=OHR.LightStationSP_PT-BR9699969670_UHD.jpg) 
