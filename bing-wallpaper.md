@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-02 | [Lago Bled do ponto de vista de Osojnica ao nascer do sol, Eslovênia (© Rasica/Getty Images)](https://global.bing.com/th?id=OHR.LakeBledSunrise_PT-BR7689736785_UHD.jpg) 
+
 2023-10-01 | [Cores do outono no Parque Nacional de Shenandoah, Virgínia, EUA (© Michael Ver Sprill/Getty Images)](https://global.bing.com/th?id=OHR.ShenandoahFoliage_PT-BR9012725885_UHD.jpg) 
 
 2023-09-30 | [Torre Jiaxiu sob lua cheia, Guiyang, província de Guizhou, China (© Wang Yukun/Getty Images)](https://global.bing.com/th?id=OHR.GuiyangMoon_PT-BR6803105528_UHD.jpg) 
