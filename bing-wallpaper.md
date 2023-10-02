@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-03 | [Fundação Louis Vuitton no Bois de Boulogne, Paris, França (© Atlantide Phototravel/Getty Images)](https://global.bing.com/th?id=OHR.VuittonFoundation_PT-BR8001158053_UHD.jpg) 
+
 2023-10-02 | [Lago Bled do ponto de vista de Osojnica ao nascer do sol, Eslovênia (© Rasica/Getty Images)](https://global.bing.com/th?id=OHR.LakeBledSunrise_PT-BR7689736785_UHD.jpg) 
 
 2023-10-01 | [Cores do outono no Parque Nacional de Shenandoah, Virgínia, EUA (© Michael Ver Sprill/Getty Images)](https://global.bing.com/th?id=OHR.ShenandoahFoliage_PT-BR9012725885_UHD.jpg) 
