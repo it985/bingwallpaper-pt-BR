@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-07 | [O Parque Estadual Taughannock Falls em Trumansburg, Nova York, EUA. (© Paul Massie Photography/Getty Images)](https://global.bing.com/th?id=OHR.TaughannockFalls_PT-BR3287209591_UHD.jpg) 
+
 2023-10-06 | [Canion fortaleza, Cambará do sul, Brasil (© agustavop/Getty Images)](https://global.bing.com/th?id=OHR.BrazilCanyon_PT-BR9855419270_UHD.jpg) 
 
 2023-10-05 | [Estrelas jovens se formando na Nebulosa da Tarântula, Telescópio Espacial James Webb (© NASA, ESA, CSA, STScI, Webb ERO Production Team)](https://global.bing.com/th?id=OHR.TarantulaNebula_PT-BR8856801522_UHD.jpg) 
