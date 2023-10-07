@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-08 | [Ursos-pardos pescando salmão nas Cataratas de Brooks, Parque Nacional Katmai, Alasca, EUA. (© oksana.perkins/Shutterstock)](https://global.bing.com/th?id=OHR.GrizzlyFalls_PT-BR4321491601_UHD.jpg) 
+
 2023-10-07 | [O Parque Estadual Taughannock Falls em Trumansburg, Nova York, EUA. (© Paul Massie Photography/Getty Images)](https://global.bing.com/th?id=OHR.TaughannockFalls_PT-BR3287209591_UHD.jpg) 
 
 2023-10-06 | [Canion fortaleza, Cambará do sul, Brasil (© agustavop/Getty Images)](https://global.bing.com/th?id=OHR.BrazilCanyon_PT-BR9855419270_UHD.jpg) 
