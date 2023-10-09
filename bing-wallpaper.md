@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-10 | [Skatepark de Venice Beach ao pôr do sol, Los Angeles, Califórnia, EUA (© EXTREME-PHOTOGRAPHER/Getty Images)](https://global.bing.com/th?id=OHR.VeniceSkatePark_PT-BR5979346434_UHD.jpg) 
+
 2023-10-09 | [Polvo veado em uma concha de tridacna, Mar de Sulawesi, Indonésia. (© Alex Mustard/Minden Pictures)](https://global.bing.com/th?id=OHR.OctoClam_PT-BR4797595929_UHD.jpg) 
 
 2023-10-08 | [Ursos-pardos pescando salmão nas Cataratas de Brooks, Parque Nacional Katmai, Alasca, EUA. (© oksana.perkins/Shutterstock)](https://global.bing.com/th?id=OHR.GrizzlyFalls_PT-BR4321491601_UHD.jpg) 
