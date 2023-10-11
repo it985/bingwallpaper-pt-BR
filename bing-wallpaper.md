@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-12 | [As Colinas Pintadas no Monumento Nacional John Day Fossil Beds, Oregon, EUA. (© Ben Herndon/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.JohnDayFossil_PT-BR5921609845_UHD.jpg) 
+
 2023-10-11 | [Monte Sopris, Colorado, EUA (© Jason Hatfield/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SoprisSunrise_PT-BR5575727511_UHD.jpg) 
 
 2023-10-10 | [Skatepark de Venice Beach ao pôr do sol, Los Angeles, Califórnia, EUA (© EXTREME-PHOTOGRAPHER/Getty Images)](https://global.bing.com/th?id=OHR.VeniceSkatePark_PT-BR5979346434_UHD.jpg) 
