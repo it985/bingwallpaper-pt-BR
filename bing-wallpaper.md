@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-13 | [Vista interna acima do altar principal da Basílica de Nossa Senhora Aparecida, São Paulo (© Marcos Martinez Sanchez/Getty Images)](https://global.bing.com/th?id=OHR.BasilicaOfOurLadyAparecida_PT-BR7685662774_UHD.jpg) 
+
 2023-10-12 | [As Colinas Pintadas no Monumento Nacional John Day Fossil Beds, Oregon, EUA. (© Ben Herndon/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.JohnDayFossil_PT-BR5921609845_UHD.jpg) 
 
 2023-10-11 | [Monte Sopris, Colorado, EUA (© Jason Hatfield/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SoprisSunrise_PT-BR5575727511_UHD.jpg) 
