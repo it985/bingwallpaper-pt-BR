@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-16 | [Pingüins Gentoo, Antártida. (© Art Wolfe/Getty Images)](https://global.bing.com/th?id=OHR.GentooJump_PT-BR8915637831_UHD.jpg) 
+
 2023-10-15 | [Eclipse solar anular “Anel de Fogo”, Doha, Catar. (© Sorin Furcoi/Getty Images)](https://global.bing.com/th?id=OHR.RingEclipse_PT-BR8456160531_UHD.jpg) 
 
 2023-10-14 | [Vieste na Península de Gargano, Apúlia, Italia. (© Pilat666/Getty Images)](https://global.bing.com/th?id=OHR.ViesteItaly_PT-BR8163447010_UHD.jpg) 
