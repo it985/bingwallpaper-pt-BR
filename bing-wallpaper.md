@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-19 | [Refúgio Nacional de Vida Selvagem de Kodiak, Ilha Kodiak, Alasca, EUA. (© Ian Shive/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.KodiakAlaska_PT-BR9855101179_UHD.jpg) 
+
 2023-10-18 | [Textos entalhados antigos de Persepolis, Irã. (© George Hall/Alamy)](https://global.bing.com/th?id=OHR.SpreadsheetDay_PT-BR9592083613_UHD.jpg) 
 
 2023-10-17 | [Lariços dourados e Pico Prusik, Echantments, Washington, EUA. (© Jim Patterson/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.GoldenEnchantments_PT-BR9264199227_UHD.jpg) 
