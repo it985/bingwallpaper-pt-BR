@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-22 | [Relevos na antiga cidade persa de Persépolis, Irã (© Ozbalci/Getty Images)](https://global.bing.com/th?id=OHR.PersepolisRelief_PT-BR7243215080_UHD.jpg) 
+
 2023-10-21 | [Filhote de bicho-preguiça-de-três-dedos, Isla Escudo de Veraguas, Panamá (© Suzi Eszterhas/Minden Pictures)](https://global.bing.com/th?id=OHR.PygmySloth_PT-BR7040912343_UHD.jpg) 
 
 2023-10-20 | [Colheita de nenúfar, Delta do Rio Mekong, Long An, Vietnã. (© Khanh Phan/Solent News/Shutterstock)](https://global.bing.com/th?id=OHR.WaterLilyVietnam_PT-BR0091482904_UHD.jpg) 
