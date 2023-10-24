@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-25 | [Castelo de Füzér nas Montanhas Zemplén, Hungria (© ZGPhotography/Alamy)](https://global.bing.com/th?id=OHR.FuzerCastle_PT-BR8679646534_UHD.jpg) 
+
 2023-10-24 | [Três capivaras juntas em um ambiente natural, Pantanal Norte, Mato Grosso, Brasil (© Joe McDonald/Getty Images)](https://global.bing.com/th?id=OHR.CapybaraAnimals_PT-BR8447005042_UHD.jpg) 
 
 2023-10-23 | [Ponte Astoria-Megler no Rio Columbia, Astoria, Oregon, EUA (© Dan Mihai/Getty Images)](https://global.bing.com/th?id=OHR.AstoriaBridge_PT-BR7535453124_UHD.jpg) 
