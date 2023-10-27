@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-28 | [Ponte Antiga de Sligachan, Ilha de Skye, Escócia (© Aliaume Chapelle/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.OldBridgeSkye_PT-BR9531632711_UHD.jpg) 
+
 2023-10-27 | [Folhagem de outono no Parque do Palácio de Schönbrunn, Viena, Áustria (© rusm/Getty Images)](https://global.bing.com/th?id=OHR.ViennaAutumn_PT-BR1572205142_UHD.jpg) 
 
 2023-10-26 | [Árvores de algodão no Monumento Nacional Grand Staircase-Escalante, Utah, EUA (© Jeff Foott/Minden Pictures)](https://global.bing.com/th?id=OHR.GrandStaircase_PT-BR9054021787_UHD.jpg) 
