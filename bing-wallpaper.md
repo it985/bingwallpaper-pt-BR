@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-29 | [Moinhos de vento em Castilla-La Mancha, Espanha (© Getty Images)](https://global.bing.com/th?id=OHR.FiveWinds_PT-BR9736426196_UHD.jpg) 
+
 2023-10-28 | [Ponte Antiga de Sligachan, Ilha de Skye, Escócia (© Aliaume Chapelle/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.OldBridgeSkye_PT-BR9531632711_UHD.jpg) 
 
 2023-10-27 | [Folhagem de outono no Parque do Palácio de Schönbrunn, Viena, Áustria (© rusm/Getty Images)](https://global.bing.com/th?id=OHR.ViennaAutumn_PT-BR1572205142_UHD.jpg) 
