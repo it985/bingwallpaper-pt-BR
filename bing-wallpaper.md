@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-30 | [Interior do Real Gabinete Português de Leitura, Rio de Janeiro, Brasil (© Donatas Dabravolskas/Shutterstock)](https://global.bing.com/th?id=OHR.RoyalCabinet_PT-BR0309884502_UHD.jpg) 
+
 2023-10-29 | [Moinhos de vento em Castilla-La Mancha, Espanha (© Getty Images)](https://global.bing.com/th?id=OHR.FiveWinds_PT-BR9736426196_UHD.jpg) 
 
 2023-10-28 | [Ponte Antiga de Sligachan, Ilha de Skye, Escócia (© Aliaume Chapelle/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.OldBridgeSkye_PT-BR9531632711_UHD.jpg) 
