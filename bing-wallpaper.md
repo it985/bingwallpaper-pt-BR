@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-06 | [GrandPrix, São Paulo, Brasil (© Dan Istitene/Getty Images)](https://global.bing.com/th?id=OHR.GrandPrix_PT-BR6808557599_UHD.jpg) 
+
 2023-11-05 | [Bisão-americano, Parque Nacional de Yellowstone, Wyoming, EUA (© Gary Gray/Getty Images)](https://global.bing.com/th?id=OHR.BisonSnow_PT-BR5474205196_UHD.jpg) 
 
 2023-11-04 | [Medusas-do-mar-do-Pacífico ao largo da costa de Carmel, Califórnia, EUA (© Jim Patterson/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SeaNettles_PT-BR5271291452_UHD.jpg) 
