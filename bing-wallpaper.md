@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-07 | [Lago Pehoé, Parque Nacional Torres del Paine, sul do Chile (© OST/Getty Images)](https://global.bing.com/th?id=OHR.LagoPehoe_PT-BR7207150939_UHD.jpg) 
+
 2023-11-06 | [GrandPrix, São Paulo, Brasil (© Dan Istitene/Getty Images)](https://global.bing.com/th?id=OHR.GrandPrix_PT-BR6808557599_UHD.jpg) 
 
 2023-11-05 | [Bisão-americano, Parque Nacional de Yellowstone, Wyoming, EUA (© Gary Gray/Getty Images)](https://global.bing.com/th?id=OHR.BisonSnow_PT-BR5474205196_UHD.jpg) 
