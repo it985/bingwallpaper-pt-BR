@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-11 | [Praia de Ipanema, Rio de Janeiro, Brasil (© luza studios/Getty Images)](https://global.bing.com/th?id=OHR.RiodeJaneiro_PT-BR8681945760_UHD.jpg) 
+
 2023-11-10 | [Bétulas no outono, Drammen, Noruega (©  Baac3nes/Getty Images)](https://global.bing.com/th?id=OHR.NorwayBirch_PT-BR8138936699_UHD.jpg) 
 
 2023-11-09 | [Mãe e bebê peixe-boi da Flórida,Crystal River, Three Sisters Spring, Flórida, EUA (©  Karine Aigner/Tandem Stills Motion)](https://global.bing.com/th?id=OHR.ManateeMama_PT-BR7962381210_UHD.jpg) 
