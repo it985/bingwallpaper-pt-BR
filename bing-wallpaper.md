@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-18 | [Bad River in Copper Falls State Park, Wisconsin (© Big Joe/Getty Images)](https://global.bing.com/th?id=OHR.BadRiver_PT-BR2573221301_UHD.jpg) 
+
 2023-11-17 | [Vista sobre Atenas e a Acrópole, Grécia (© Mlenny/Getty Images)](https://global.bing.com/th?id=OHR.AthensAcropolis_PT-BR9783837981_UHD.jpg) 
 
 2023-11-16 | [Vale de Rapa no Parque Nacional de Sarek, Suécia (© Hans Strand/Getty Images)](https://global.bing.com/th?id=OHR.SarekSweden_PT-BR9598980738_UHD.jpg) 
