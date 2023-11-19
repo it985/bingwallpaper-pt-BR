@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-20 | [Bandeira brasileira voando sob o céu azul (©  GideoniJunior/Getty Images)](https://global.bing.com/th?id=OHR.DiadaBandeira_PT-BR3508927163_UHD.jpg) 
+
 2023-11-19 | [Polar bear mother and cubs, Churchill, Manitoba, Canada (© Thorsten Milse/Getty Images)](https://global.bing.com/th?id=OHR.MilsePolarBear_PT-BR2847800646_UHD.jpg) 
 
 2023-11-18 | [Bad River in Copper Falls State Park, Wisconsin (© Big Joe/Getty Images)](https://global.bing.com/th?id=OHR.BadRiver_PT-BR2573221301_UHD.jpg) 
