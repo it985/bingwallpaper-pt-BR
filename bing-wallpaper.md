@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-25 | [Hall of Mosses trail in the Hoh Rain Forest, Olympic National Park, Washington (© James Randklev/Getty Images)](https://global.bing.com/th?id=OHR.HallofMosses_PT-BR6641708132_UHD.jpg) 
+
 2023-11-24 | [Sunset at Teide National Park, Tenerife, Canary Islands, Spain (© Javier Martínez Morán/Alamy)](https://global.bing.com/th?id=OHR.TeideNational_PT-BR6138267568_UHD.jpg) 
 
 2023-11-23 | [Plantas Pepalantus  Parque Nacional da Chapada dos Veadeiros, Goias, Brasil (© Cavan Images/Getty Images)](https://global.bing.com/th?id=OHR.PepalantusPlants_PT-BR5920810931_UHD.jpg) 
