@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-01 | [The Storr, a rock outcrop on the Isle of Skye, Scotland (© Juan Maria Coy Vergara/Getty Images)](https://global.bing.com/th?id=OHR.TrotternishStorr_PT-BR8013628330_UHD.jpg) 
+
 2023-11-30 | [Rockefeller Center Christmas tree, New York City (© Jonathan Orenstein/Getty Images)](https://global.bing.com/th?id=OHR.TreeLighting_PT-BR7736994809_UHD.jpg) 
 
 2023-11-29 | [Giant land art fresco by artist Saype in Istanbul, Türkiye (© Chris McGrath/Getty Images)](https://global.bing.com/th?id=OHR.HumanKindness_PT-BR7560592724_UHD.jpg) 
