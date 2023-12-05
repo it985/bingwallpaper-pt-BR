@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-06 | [Museu do Amanhã, Rio de Janeiro, Brasil (© Donatas Dabravolskas/Shutterstock)](https://global.bing.com/th?id=OHR.MuseumofTomorrow_PT-BR0071578162_UHD.jpg) 
+
 2023-12-05 | [A mother cheetah and her cubs in the Masai Mara National Reserve, Kenya (© Scott Davis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.CheetahDay_PT-BR9341375783_UHD.jpg) 
 
 2023-12-04 | [Sandstone rock formations, Vermilion Cliffs National Monument, Arizona (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://global.bing.com/th?id=OHR.VermilionCliffs_PT-BR9118201402_UHD.jpg) 
