@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-07 | [The Globe of Science and Innovation building, Meyrin, Switzerland (© Deyan Baric/Alamy)](https://global.bing.com/th?id=OHR.CERNCenter_PT-BR9750877700_UHD.jpg) 
+
 2023-12-06 | [Museu do Amanhã, Rio de Janeiro, Brasil (© Donatas Dabravolskas/Shutterstock)](https://global.bing.com/th?id=OHR.MuseumofTomorrow_PT-BR0071578162_UHD.jpg) 
 
 2023-12-05 | [A mother cheetah and her cubs in the Masai Mara National Reserve, Kenya (© Scott Davis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.CheetahDay_PT-BR9341375783_UHD.jpg) 
