@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-10 | [Guanacos in Los Glaciares National Park, Patagonia, Argentina (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://global.bing.com/th?id=OHR.PatagoniaGuanaco_PT-BR0400423849_UHD.jpg) 
+
 2023-12-09 | [La Rocque Harbour, St. Clement, Island of Jersey (© Reinhard Schmid/Huber/eStock Photo)](https://global.bing.com/th?id=OHR.JerseyIsland_PT-BR0126731270_UHD.jpg) 
 
 2023-12-08 | [A foggy morning at Verdon Gorge in the Alpes-de-Haute-Provence of France (© Hemis/Alamy)](https://global.bing.com/th?id=OHR.GrandCanyonVerdon_PT-BR9952684873_UHD.jpg) 
