@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-13 | [Red poinsettias (© Yarygin/Getty Images)](https://global.bing.com/th?id=OHR.Poinsettia_PT-BR0931559837_UHD.jpg) 
+
 2023-12-12 | [Winter in Huangshan Mountains, China (© Hung Chung Chih/Shutterstock)](https://global.bing.com/th?id=OHR.MountainDayChina_PT-BR0775570847_UHD.jpg) 
 
 2023-12-11 | [Last rays of sun on a group of dunes, Sahara, Algeria (© AWL Images/DanitaDelimont.com)](https://global.bing.com/th?id=OHR.SaharaDunes_PT-BR0559111753_UHD.jpg) 
