@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-15 | [Boreal owl, Saskatchewan, Canada (© Nick Saunders/Minden Pictures)](https://global.bing.com/th?id=OHR.BorealOwl_PT-BR1424303006_UHD.jpg) 
+
 2023-12-14 | [Cachoeira da Fumacinha, Chapada Diamantina Mountains, Bahia, Brazil (© Rtzstudio/Shutterstock)](https://global.bing.com/th?id=OHR.ChapadaDiamantina_PT-BR0912635874_UHD.jpg) 
 
 2023-12-13 | [Red poinsettias (© Yarygin/Getty Images)](https://global.bing.com/th?id=OHR.Poinsettia_PT-BR0931559837_UHD.jpg) 
