@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-17 | [Casas da Guilda da Grand-Place, Bruxelas, Bélgica (© Richard Taylor/Sime/eStock Photo)](https://global.bing.com/th?id=OHR.GrandPlaceXmas_PT-BR7345216772_UHD.jpg) 
+
 2023-12-16 | [Parque do Papai Noel em Rovaniemi, Lapônia, Finlândia (© lukutin77/Getty Images)](https://global.bing.com/th?id=OHR.SantaPark_PT-BR7158729653_UHD.jpg) 
 
 2023-12-15 | [Boreal owl, Saskatchewan, Canada (© Nick Saunders/Minden Pictures)](https://global.bing.com/th?id=OHR.BorealOwl_PT-BR1424303006_UHD.jpg) 
