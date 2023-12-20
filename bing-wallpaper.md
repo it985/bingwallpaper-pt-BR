@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-21 | [Aldeia em Val Gardena no Natal, Dolomitas, Itália (© Ingus Kruklitis/Getty Images)](https://global.bing.com/th?id=OHR.ValGardenaItaly_PT-BR7927921008_UHD.jpg) 
+
 2023-12-20 | [Árvore de Natal na Praça do Castelo, Cidade Velha, Varsóvia, Polônia (© Panther Media GmbH/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.WarsawChristmas_PT-BR7812599043_UHD.jpg) 
 
 2023-12-19 | [Parque Nacional Capitol Reef, Utah, EUA (© Jeff Clay/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.CapitolReefSnow_PT-BR7723404626_UHD.jpg) 
