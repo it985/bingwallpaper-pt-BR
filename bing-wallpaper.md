@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-23 | [Silhueta de Árvores contra o Céu Alaranjado, Jericoacoara, Ceará (© Fuka jaz/Getty Images)](https://global.bing.com/th?id=OHR.SolsticiodeVerao_PT-BR8599569944_UHD.jpg) 
+
 2023-12-22 | [Liubliana, Eslovênia (© kasto80/Getty images)](https://global.bing.com/th?id=OHR.LjubljanaLights_PT-BR8015309848_UHD.jpg) 
 
 2023-12-21 | [Aldeia em Val Gardena no Natal, Dolomitas, Itália (© Ingus Kruklitis/Getty Images)](https://global.bing.com/th?id=OHR.ValGardenaItaly_PT-BR7927921008_UHD.jpg) 
