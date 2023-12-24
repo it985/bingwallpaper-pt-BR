@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-25 | [Praça da Câmara Municipal, Tartu, Estônia (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.EstoniaXmasEve_PT-BR8966974749_UHD.jpg) 
+
 2023-12-24 | [Pinguins Chinstrap, Ilhas Sandwich do Sul, Oceano Atlântico Sul (© Jan Vermeer/Minden Pictures)](https://global.bing.com/th?id=OHR.FestivusPenguins_PT-BR8893075864_UHD.jpg) 
 
 2023-12-23 | [Silhueta de Árvores contra o Céu Alaranjado, Jericoacoara, Ceará (© Fuka jaz/Getty Images)](https://global.bing.com/th?id=OHR.SolsticiodeVerao_PT-BR8599569944_UHD.jpg) 
