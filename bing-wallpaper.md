@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-30 | [Bairro Oud-West, Amsterdã, Países Baixos  (© George Pachantouris/Getty Images)](https://global.bing.com/th?id=OHR.BlueAmsterdam_PT-BR8827173847_UHD.jpg) 
+
 2023-12-29 | [Baleia jubarte, Baía de Disko, Groenlândia (© Paul Souders/DanitaDelimont.com)](https://global.bing.com/th?id=OHR.GreenlandHumpback_PT-BR0827643053_UHD.jpg) 
 
 2023-12-27 | [Araçari-poca na floresta tropical do Rio de Janeiro (© aaprophoto/Getty Images)](https://global.bing.com/th?id=OHR.ToucanetEmpoleirado_PT-BR9974845394_UHD.jpg) 
