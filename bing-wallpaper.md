@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-01 | [Fogos de artifício na festa de Ano Novo na praia de Copacabana (© Pulsar Imagens/Alamy)](https://global.bing.com/th?id=OHR.ReveillonBrazil_PT-BR9820187694_UHD.jpg) 
+
 2023-12-31 | [Ponte Daiichi, Rio Tadami River, Fukushima, Japão (© DoctorEgg/Getty Images)](https://global.bing.com/th?id=OHR.TadamiWinter_PT-BR9134257179_UHD.jpg) 
 
 2023-12-30 | [Bairro Oud-West, Amsterdã, Países Baixos  (© George Pachantouris/Getty Images)](https://global.bing.com/th?id=OHR.BlueAmsterdam_PT-BR8827173847_UHD.jpg) 
