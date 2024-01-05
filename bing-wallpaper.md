@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-06 | [Um belo pôr do sol no Pantanal do Brasil (© Lucas Ninno/Getty Images)](https://global.bing.com/th?id=OHR.SunsetPantanal_PT-BR1044442706_UHD.jpg) 
+
 2024-01-05 | [A Ponte Golden Gate, San Francisco, Califórnia, EUA (© Jim Patterson/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.GoldenGateLight_PT-BR0467523919_UHD.jpg) 
 
 2024-01-04 | [Biblioteca Bodleian, Universidade de Oxford, Inglaterra (© Andrew Holt/Getty Images)](https://global.bing.com/th?id=OHR.BodleianCeiling_PT-BR0267945002_UHD.jpg) 
