@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-08 | [Reserva de Conservação Karlu Karlu, Devils Marbles, Austrália (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://global.bing.com/th?id=OHR.DevilsMarbles_PT-BR1760984393_UHD.jpg) 
+
 2024-01-07 | [Tentilhão macho pousado em uma macieira (© Mark Hamblin/2020VISION/Minden Pictures)](https://global.bing.com/th?id=OHR.CrabappleChaffinch_PT-BR1131580779_UHD.jpg) 
 
 2024-01-06 | [Um belo pôr do sol no Pantanal do Brasil (© Lucas Ninno/Getty Images)](https://global.bing.com/th?id=OHR.SunsetPantanal_PT-BR1044442706_UHD.jpg) 
