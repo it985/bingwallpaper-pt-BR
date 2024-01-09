@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-10 | [Balões de ar quente sobre o Rio Grande, Albuquerque, Novo México, EUA (© Jennifer MacCornack/Shutterstock)](https://global.bing.com/th?id=OHR.BalloonDay_PT-BR2020170449_UHD.jpg) 
+
 2024-01-09 | [Esquiador no Passo Bernina, Grisões, Suíça (© Francesco Bergamaschi/Getty Images)](https://global.bing.com/th?id=OHR.BerninaPass_PT-BR1871424589_UHD.jpg) 
 
 2024-01-08 | [Reserva de Conservação Karlu Karlu, Devils Marbles, Austrália (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://global.bing.com/th?id=OHR.DevilsMarbles_PT-BR1760984393_UHD.jpg) 
