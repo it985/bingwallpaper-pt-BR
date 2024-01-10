@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-11 | [Litoral em Mylopotamos, Tessália, Grécia (© Orestis Zoumpos/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.MilopotamosStairs_PT-BR2096578395_UHD.jpg) 
+
 2024-01-10 | [Balões de ar quente sobre o Rio Grande, Albuquerque, Novo México, EUA (© Jennifer MacCornack/Shutterstock)](https://global.bing.com/th?id=OHR.BalloonDay_PT-BR2020170449_UHD.jpg) 
 
 2024-01-09 | [Esquiador no Passo Bernina, Grisões, Suíça (© Francesco Bergamaschi/Getty Images)](https://global.bing.com/th?id=OHR.BerninaPass_PT-BR1871424589_UHD.jpg) 
