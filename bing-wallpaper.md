@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-12 | [Lince-euroasiático na neve (© Jan Stria/Shutterstock)](https://global.bing.com/th?id=OHR.LynxSnow_PT-BR2256931375_UHD.jpg) 
+
 2024-01-11 | [Litoral em Mylopotamos, Tessália, Grécia (© Orestis Zoumpos/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.MilopotamosStairs_PT-BR2096578395_UHD.jpg) 
 
 2024-01-10 | [Balões de ar quente sobre o Rio Grande, Albuquerque, Novo México, EUA (© Jennifer MacCornack/Shutterstock)](https://global.bing.com/th?id=OHR.BalloonDay_PT-BR2020170449_UHD.jpg) 
