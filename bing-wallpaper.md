@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-20 | [Parque Nacional dos Lagos de Plitvice, Croácia (© Massimo_S8/Getty Images)](https://global.bing.com/th?id=OHR.PlitviceWinter_PT-BR1244694637_UHD.jpg) 
+
 2024-01-19 | [A Ponte Alexandre III ao crepúsculo, Paris, França (© Sizun Eye/Getty Images)](https://global.bing.com/th?id=OHR.ParisBridge_PT-BR5007932654_UHD.jpg) 
 
 2024-01-18 | [Um tamanduá passeando pelo Pantanal brasileiro (© Pedro Ferreira do Amaral/Getty Images)](https://global.bing.com/th?id=OHR.GiantAnteaterBR_PT-BR0815796970_UHD.jpg) 
