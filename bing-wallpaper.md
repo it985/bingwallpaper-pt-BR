@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-23 | [Amanhecer de inverno, Farol de Walton, Santa Cruz, Califórnia, EUA (© Jeff Lewis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SantaCruzSunrise_PT-BR7110866378_UHD.jpg) 
+
 2024-01-22 | [Esquilo vermelho da Eurásia, Países Baixos (© Ernst Dirksen/Minden Pictures)](https://global.bing.com/th?id=OHR.SquirrelNetherlands_PT-BR1648489881_UHD.jpg) 
 
 2024-01-21 | [Pinguins de Macaroni, Passagem de Drake, Chile (© Paul Souders/Getty Images)](https://global.bing.com/th?id=OHR.MacaroniPenguins_PT-BR1446877304_UHD.jpg) 
