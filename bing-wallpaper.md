@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-26 | [Baleia metálica, Avenida Faria Lima, São Paulo, Brasil (© Brazil Photo Press/Alamy)](https://global.bing.com/th?id=OHR.FundacaodaCapital_PT-BR3549565256_UHD.jpg) 
+
 2024-01-25 | [Praia dos Diamantes, Islândia (© Rachid Dahnoun/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.IcelandBeach_PT-BR2508967674_UHD.jpg) 
 
 2024-01-24 | [Atóis no Oceano Índico, Maldivas (© Amazing Aerial Premium/Shutterstock)](https://global.bing.com/th?id=OHR.MaldivesAtolls_PT-BR2284826864_UHD.jpg) 
