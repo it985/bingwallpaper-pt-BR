@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-01 | [Arara-canindé voando na floresta do Pantanal, Brasil (© Ondrej Prosicky/Shutterstock)](https://global.bing.com/th?id=OHR.MacawParrot_PT-BR2174373090_UHD.jpg) 
+
 2024-01-31 | [Aýna, Sierra del Segura, Albacete, Espanha (© Juan Maria Coy Vergara/Getty Images)](https://global.bing.com/th?id=OHR.AlbaceteSpain_PT-BR1055348221_UHD.jpg) 
 
 2024-01-30 | [Cachoeiras de Gollinger, Tennengau, Salzburgo, Áustria (© Frank Fischbach/Alamy)](https://global.bing.com/th?id=OHR.GollingerFalls_PT-BR0731696047_UHD.jpg) 
