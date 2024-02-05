@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-06 | [Borboletas-monarca, Goleta, Califórnia, EUA (© Craig Rademacher/500px/Getty Images)](https://global.bing.com/th?id=OHR.WesternMonarchs_PT-BR3062491558_UHD.jpg) 
+
 2024-02-05 | [Caverna Devetashka, Devetaki, Bulgária (© Jasmine_K/Shutterstock)](https://global.bing.com/th?id=OHR.DevetashkaCave_PT-BR2895645670_UHD.jpg) 
 
 2024-02-04 | [Grande Canal com a Basílica de Santa Maria della Salute, Veneza, Itália (© RudyBalasko/Getty Images)](https://global.bing.com/th?id=OHR.VeniceCarnival_PT-BR2721773267_UHD.jpg) 
