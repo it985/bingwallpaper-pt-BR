@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-07 | [Bonsai Rock, Lago Tahoe, EUA (© Jim Patterson/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.LakeTahoeRock_PT-BR3293078683_UHD.jpg) 
+
 2024-02-06 | [Borboletas-monarca, Goleta, Califórnia, EUA (© Craig Rademacher/500px/Getty Images)](https://global.bing.com/th?id=OHR.WesternMonarchs_PT-BR3062491558_UHD.jpg) 
 
 2024-02-05 | [Caverna Devetashka, Devetaki, Bulgária (© Jasmine_K/Shutterstock)](https://global.bing.com/th?id=OHR.DevetashkaCave_PT-BR2895645670_UHD.jpg) 
