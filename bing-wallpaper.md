@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-14 | [Pegadung Rock, Lampung, Sumatra, Indonesia (© CK NG/500px/Getty Images)](https://global.bing.com/th?id=OHR.PegadungRocks_PT-BR4077101673_UHD.jpg) 
+
 2024-02-13 | [Volcán Alcedo giant tortoises, Isabela Island, Galápagos, Ecuador (© Tui De Roy/Minden Pictures)](https://global.bing.com/th?id=OHR.GiantTortoise_PT-BR2643244597_UHD.jpg) 
 
 2024-02-12 | [Chora, Folegandros Island, Cyclades, Greece (© Francesco Riccardo Iacomino/Getty Images)](https://global.bing.com/th?id=OHR.FolegandrosGreece_PT-BR2119893846_UHD.jpg) 
