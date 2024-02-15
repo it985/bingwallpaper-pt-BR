@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-16 | [Hippopotamus mother and calf, South Luangwa National Park, Zambia (© Nature Picture Library/Alamy)](https://global.bing.com/th?id=OHR.HippopotamusDay_PT-BR4524933452_UHD.jpg) 
+
 2024-02-15 | [Red-crowned crane bowing to his mate in Hokkaido, Japan (© Steve Bloom Images/Alamy)](https://global.bing.com/th?id=OHR.BowingCrane_PT-BR4236124881_UHD.jpg) 
 
 2024-02-14 | [Pegadung Rock, Lampung, Sumatra, Indonesia (© CK NG/500px/Getty Images)](https://global.bing.com/th?id=OHR.PegadungRocks_PT-BR4077101673_UHD.jpg) 
