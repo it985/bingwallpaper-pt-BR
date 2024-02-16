@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-17 | [Female pyrrhuloxia perched on cactus plant, Texas (© outtakes/Getty Images)](https://global.bing.com/th?id=OHR.BackyardBird_PT-BR4739609894_UHD.jpg) 
+
 2024-02-16 | [Hippopotamus mother and calf, South Luangwa National Park, Zambia (© Nature Picture Library/Alamy)](https://global.bing.com/th?id=OHR.HippopotamusDay_PT-BR4524933452_UHD.jpg) 
 
 2024-02-15 | [Red-crowned crane bowing to his mate in Hokkaido, Japan (© Steve Bloom Images/Alamy)](https://global.bing.com/th?id=OHR.BowingCrane_PT-BR4236124881_UHD.jpg) 
