@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-18 | [Lago Di Braies nas Dolomitas, Tirol do Sul, Itália (© Marco Bottigelli/Getty Images)](https://global.bing.com/th?id=OHR.LakeDolomites_PT-BR5853675668_UHD.jpg) 
+
 2024-02-17 | [Female pyrrhuloxia perched on cactus plant, Texas (© outtakes/Getty Images)](https://global.bing.com/th?id=OHR.BackyardBird_PT-BR4739609894_UHD.jpg) 
 
 2024-02-16 | [Hippopotamus mother and calf, South Luangwa National Park, Zambia (© Nature Picture Library/Alamy)](https://global.bing.com/th?id=OHR.HippopotamusDay_PT-BR4524933452_UHD.jpg) 
