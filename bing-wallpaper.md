@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-21 | [Kinder Scout at sunrise, Peak District National Park, England (© john finney photography/Getty Images)](https://global.bing.com/th?id=OHR.PeakDistrictNP_PT-BR5424756118_UHD.jpg) 
+
 2024-02-20 | [Aerial view of colourful houses on a headland in Puerto de la Cruz, Tenerife, Spain (© Marco Bottigelli/Getty Images)](https://global.bing.com/th?id=OHR.CarnavalTenerife_PT-BR5233903925_UHD.jpg) 
 
 2024-02-19 | [Sperm whale pod surfacing, Dominica (© Franco Banfi/Minden Pictures)](https://global.bing.com/th?id=OHR.DominicaWhales_PT-BR4985904903_UHD.jpg) 
