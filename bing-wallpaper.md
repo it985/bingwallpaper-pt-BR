@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-23 | [Cataratas do Iguaçu, Paraná (© Nido Huebl/Shutterstock)](https://global.bing.com/th?id=OHR.IguazuFalls_PT-BR6454188192_UHD.jpg) 
+
 2024-02-22 | [Firefall at Horsetail Fall, Yosemite National Park, California (© Gregory B Cuvelier/Shutterstock)](https://global.bing.com/th?id=OHR.YosemiteFirefall_PT-BR5614973878_UHD.jpg) 
 
 2024-02-21 | [Kinder Scout at sunrise, Peak District National Park, England (© john finney photography/Getty Images)](https://global.bing.com/th?id=OHR.PeakDistrictNP_PT-BR5424756118_UHD.jpg) 
