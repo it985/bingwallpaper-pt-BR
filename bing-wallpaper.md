@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-24 | [Monastério de Haghartsin, Parque Nacional de Dilijan, Armênia (© Alexey Kharitonov/Shutterstock)](https://global.bing.com/th?id=OHR.HaghartsinMonastery_PT-BR9216139787_UHD.jpg) 
+
 2024-02-23 | [Cataratas do Iguaçu, Paraná (© Nido Huebl/Shutterstock)](https://global.bing.com/th?id=OHR.IguazuFalls_PT-BR6454188192_UHD.jpg) 
 
 2024-02-22 | [Firefall at Horsetail Fall, Yosemite National Park, California (© Gregory B Cuvelier/Shutterstock)](https://global.bing.com/th?id=OHR.YosemiteFirefall_PT-BR5614973878_UHD.jpg) 
