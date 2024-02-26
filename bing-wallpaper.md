@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-27 | [Parque Nacional do Grand Canyon, Arizona, EUA (© Jeremy Janus/Getty Images)](https://global.bing.com/th?id=OHR.GrandCanyonWinter_PT-BR0593676326_UHD.jpg) 
+
 2024-02-26 | [Névoa no Vale Cowichan a partir do Monte Prevost, Duncan, Ilha de Vancouver, Colúmbia Britânica, Canadá (© Kevin Oke/Alamy)](https://global.bing.com/th?id=OHR.MtPrevostDuncan_PT-BR0029292582_UHD.jpg) 
 
 2024-02-25 | [Amendoeiras em plena floração, Califórnia, EUA (© Jeffrey Lewis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.AlmondBloom_PT-BR9517500813_UHD.jpg) 
