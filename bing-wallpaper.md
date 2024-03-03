@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-04 | [Leopardo em uma árvore, Parque Nacional Kruger, África do Sul (© Tonino De Marco/Minden Pictures)](https://global.bing.com/th?id=OHR.KrugerLeopard_PT-BR1839115082_UHD.jpg) 
+
 2024-03-03 | [Módica, Sicília, Itália (© Sandro Bisaro/Getty Images)](https://global.bing.com/th?id=OHR.ModicaItaly_PT-BR1634339196_UHD.jpg) 
 
 2024-03-02 | [Borboletas em um campo na Alemanha (© Albert Fertl/Getty Images)](https://global.bing.com/th?id=OHR.Schmetterlingswiese_PT-BR1454975701_UHD.jpg) 
