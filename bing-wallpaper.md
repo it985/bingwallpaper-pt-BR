@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-06 | [Nanday, família dos periquitos, Pantanal (© Pedro Hélder da Costa Pinheiro/Getty Images)](https://global.bing.com/th?id=OHR.NandayParakeet_PT-BR2771660938_UHD.jpg) 
+
 2024-03-05 | [Vulcão Arenal visto de Monteverde, Costa Rica (© Lukas Bischoff/Getty Images)](https://global.bing.com/th?id=OHR.ArenalCostaRica_PT-BR2896313529_UHD.jpg) 
 
 2024-03-04 | [Leopardo em uma árvore, Parque Nacional Kruger, África do Sul (© Tonino De Marco/Minden Pictures)](https://global.bing.com/th?id=OHR.KrugerLeopard_PT-BR1839115082_UHD.jpg) 
