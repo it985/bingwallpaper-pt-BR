@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-11 | [Bisti/De-Na-Zin Wilderness Area, New Mexico (© Ian Shive/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.BistiBlue_PT-BR3525071051_UHD.jpg) 
+
 2024-03-10 | [Garça-branca-grande (Ardea alba) em pé em uma lagoa de vitórias-régias, Pantanal (© Geraldi Corsi/Getty Images)](https://global.bing.com/th?id=OHR.ArdeAlba_PT-BR8363660380_UHD.jpg) 
 
 2024-03-09 | [Galeria Tate Modern iluminada no Dia Internacional da Mulher, Londres, Inglaterra (© Stephen Chung/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.TateLightUp_PT-BR7094951242_UHD.jpg) 
