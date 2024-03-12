@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-13 | [Parque Nacional Bryce Canyon, Utah, EUA (© Jim Patterson/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.BryceSnow_PT-BR0096570080_UHD.jpg) 
+
 2024-03-12 | [Um coala dormindo em uma árvore de eucalipto, Austrália (© Anton Rogozin/Getty Images)](https://global.bing.com/th?id=OHR.SleepyKoala_PT-BR9818387982_UHD.jpg) 
 
 2024-03-11 | [Bisti/De-Na-Zin Wilderness Area, New Mexico (© Ian Shive/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.BistiBlue_PT-BR3525071051_UHD.jpg) 
