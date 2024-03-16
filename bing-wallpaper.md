@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-17 | [Panda gigante comendo bambu, Chengdu, China (© Suzi Eszterhas/Minden Pictures)](https://global.bing.com/th?id=OHR.BambooPanda_PT-BR2137672411_UHD.jpg) 
+
 2024-03-16 | [Parque Estadual do Deserto de Anza-Borrego, Califórnia, EUA (© Stephen Matera/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.AnzaBorregoBloom_PT-BR1895127264_UHD.jpg) 
 
 2024-03-15 | [Alameda de Palmeiras Imperiales in the Botanical Garden of Rio de Janeiro (© Marcia Silva de Mendonca/Getty Images)](https://global.bing.com/th?id=OHR.CancaoDoExilio_PT-BR1504985587_UHD.jpg) 
