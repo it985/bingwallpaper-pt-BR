@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-18 | [Finian's Bay, Condado de Kerry, Irlanda (© Atlantide Phototravel/Getty Images)](https://global.bing.com/th?id=OHR.StFiniansBay_PT-BR2316790024_UHD.jpg) 
+
 2024-03-17 | [Panda gigante comendo bambu, Chengdu, China (© Suzi Eszterhas/Minden Pictures)](https://global.bing.com/th?id=OHR.BambooPanda_PT-BR2137672411_UHD.jpg) 
 
 2024-03-16 | [Parque Estadual do Deserto de Anza-Borrego, Califórnia, EUA (© Stephen Matera/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.AnzaBorregoBloom_PT-BR1895127264_UHD.jpg) 
