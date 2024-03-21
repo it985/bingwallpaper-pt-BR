@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-22 | [Floresta Nacional Impenetrável de Bwindi, Uganda (© Art Wolfe/DanitaDelimont.com)](https://global.bing.com/th?id=OHR.BwindiNationalForest_PT-BR3676820157_UHD.jpg) 
+
 2024-03-21 | [Rã arborícola (© Tetsuya Tanooka/DEEPOL by plainpicture)](https://global.bing.com/th?id=OHR.SpringFrog_PT-BR7201862349_UHD.jpg) 
 
 2024-03-20 | [Cave Dale e Castelo de Peveril em Castleton, Parque Nacional de Peak District, Derbyshire, Inglaterra (© James Osmond/Alamy)](https://global.bing.com/th?id=OHR.SpringFrog_PT-BR2957338911_UHD.jpg) 
