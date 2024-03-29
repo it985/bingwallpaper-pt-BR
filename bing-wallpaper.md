@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-30 | [Igreja do Nosso Senhor do Bonfim, Pelourinho (© Grafissimo/Getty images)](https://global.bing.com/th?id=OHR.AniversarioSalvador_PT-BR0763407699_UHD.jpg) 
+
 2024-03-29 | [Flores de cerejeira em Xangai, China (© Yaorusheng/Getty Images)](https://global.bing.com/th?id=OHR.ShanghaiBlossoms_PT-BR9791195331_UHD.jpg) 
 
 2024-03-28 | [Teatro Colón em Buenos Aires, Argentina (© Wei Hao Ho/Alamy)](https://global.bing.com/th?id=OHR.TeatroColon_PT-BR9483499387_UHD.jpg) 
