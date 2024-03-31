@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-01 | [Ovos de Páscoa de Tünde Csuhaj, Szekszárd, Hungria (© ATTILA KISBENEDEK/AFP/Getty Images)](https://global.bing.com/th?id=OHR.HungarianEggs_PT-BR0431246025_UHD.jpg) 
+
 2024-03-31 | [Bicho-preguiça dormindo em uma embaúba, Costa Rica (© Juan Carlos Vindas/Getty Images)](https://global.bing.com/th?id=OHR.SleepySloth_PT-BR0186395932_UHD.jpg) 
 
 2024-03-30 | [Igreja do Nosso Senhor do Bonfim, Pelourinho (© Grafissimo/Getty images)](https://global.bing.com/th?id=OHR.AniversarioSalvador_PT-BR0763407699_UHD.jpg) 
