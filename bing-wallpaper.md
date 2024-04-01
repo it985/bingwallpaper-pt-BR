@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-02 | ['Vanishing Point', do artista de rua francês JR, cobre a fachada do Palazzo Farnese, Roma, Itália (© Fabrizio Troiani/Alamy)](https://global.bing.com/th?id=OHR.PalazzoFarnese_PT-BR0676715061_UHD.jpg) 
+
 2024-04-01 | [Ovos de Páscoa de Tünde Csuhaj, Szekszárd, Hungria (© ATTILA KISBENEDEK/AFP/Getty Images)](https://global.bing.com/th?id=OHR.HungarianEggs_PT-BR0431246025_UHD.jpg) 
 
 2024-03-31 | [Bicho-preguiça dormindo em uma embaúba, Costa Rica (© Juan Carlos Vindas/Getty Images)](https://global.bing.com/th?id=OHR.SleepySloth_PT-BR0186395932_UHD.jpg) 
