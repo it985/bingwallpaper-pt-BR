@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-04 | [Um arco-íris no distrito de At-Bashy, montanhas Kakshaal Too, província de Naryn, Quirguistão (© Emad aljumah/Getty Images)](https://global.bing.com/th?id=OHR.KyrgyzstanRainbow_PT-BR1032098140_UHD.jpg) 
+
 2024-04-03 | [Farol de South Stack ao pôr do sol, Holyhead, País de Gales, Reino Unido (© mariotlr/Getty Images)](https://global.bing.com/th?id=OHR.SouthStackLight_PT-BR0876989984_UHD.jpg) 
 
 2024-04-02 | ['Vanishing Point', do artista de rua francês JR, cobre a fachada do Palazzo Farnese, Roma, Itália (© Fabrizio Troiani/Alamy)](https://global.bing.com/th?id=OHR.PalazzoFarnese_PT-BR0676715061_UHD.jpg) 
