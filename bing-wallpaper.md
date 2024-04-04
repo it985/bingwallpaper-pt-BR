@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-05 | [Rebanho de cobo-de-leche vermelho cruzando a planície pantanosa do Delta do Okavango, Botsuana (© Ibrahim Suha Derbent/Getty Images)](https://global.bing.com/th?id=OHR.AntelopeBotswana_PT-BR1126611308_UHD.jpg) 
+
 2024-04-04 | [Um arco-íris no distrito de At-Bashy, montanhas Kakshaal Too, província de Naryn, Quirguistão (© Emad aljumah/Getty Images)](https://global.bing.com/th?id=OHR.KyrgyzstanRainbow_PT-BR1032098140_UHD.jpg) 
 
 2024-04-03 | [Farol de South Stack ao pôr do sol, Holyhead, País de Gales, Reino Unido (© mariotlr/Getty Images)](https://global.bing.com/th?id=OHR.SouthStackLight_PT-BR0876989984_UHD.jpg) 
