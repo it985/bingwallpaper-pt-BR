@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-11 | [Filhotes de coruja-buraqueira perto de uma toca, Wyoming, EUA (© Danita Delimont/Getty Images)](https://global.bing.com/th?id=OHR.OwlSiblings_PT-BR5674103316_UHD.jpg) 
+
 2024-04-10 | [Campos de tulipas, Vale de Skagit ,Washington, EUA (© Claudia Cooper/Getty Images)](https://global.bing.com/th?id=OHR.SkagitValleyTulips_PT-BR5378800364_UHD.jpg) 
 
 2024-04-09 | [Vista aérea da cidade de Cuiabá e do rio Cuiabá, Mato Grosso (© Lucas Ninno/Getty Images)](https://global.bing.com/th?id=OHR.CuiabaAniversary_PT-BR5141528738_UHD.jpg) 
