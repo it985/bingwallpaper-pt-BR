@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-14 | [Luz noturna sobre a North Window com o Arco Turret à distância, Parque Nacional dos Arcos, Utah, EUA (© Anthony Heflin/Shutterstock)](https://global.bing.com/th?id=OHR.SunsetArchesNP_PT-BR6301905431_UHD.jpg) 
+
 2024-04-13 | [Jardim botânico de Curitiba, Paraná (© Marcelo Araujo/Getty Images)](https://global.bing.com/th?id=OHR.Curitiba_PT-BR8811404397_UHD.jpg) 
 
 2024-04-12 | [Vista aérea da catarata Churun-Meru (Dragão), Venezuela (© AirPano LLC/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.DragonWaterfall_PT-BR5875441012_UHD.jpg) 
