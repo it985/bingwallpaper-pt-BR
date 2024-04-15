@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-16 | [Instalação artística do 'RedBall Project', Estação Central, Antuérpia, Bélgica (© Brit Worgan/Getty Images)](https://global.bing.com/th?id=OHR.RedBallBelgium_PT-BR7344009835_UHD.jpg) 
+
 2024-04-15 | [Pôr do sol em Praia das Bolas de Boliche, Condado de Mendocino, Califórnia, EUA (© Melo Qiao/Getty Images)](https://global.bing.com/th?id=OHR.BowlingBallCali_PT-BR6942653750_UHD.jpg) 
 
 2024-04-14 | [Luz noturna sobre a North Window com o Arco Turret à distância, Parque Nacional dos Arcos, Utah, EUA (© Anthony Heflin/Shutterstock)](https://global.bing.com/th?id=OHR.SunsetArchesNP_PT-BR6301905431_UHD.jpg) 
