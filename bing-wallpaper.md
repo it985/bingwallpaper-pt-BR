@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-20 | [Mural de Eduardo Kobra ‘Povos Nativos dos 5 continentes’ (© Donatas Dabravolskas/Alamy)](https://global.bing.com/th?id=OHR.PovoIndigena_PT-BR1924645253_UHD.jpg) 
+
 2024-04-19 | [Muralhas medievais da cidade, Ávila, Espanha (© Scott Suriano/Getty Images)](https://global.bing.com/th?id=OHR.AvilaSpain_PT-BR7974063608_UHD.jpg) 
 
 2024-04-18 | [Filhote de urso negro americano na primavera, Parque Nacional Shenandoah, Virgínia, EUA (© Scott Suriano/Getty Images)](https://global.bing.com/th?id=OHR.SpringCub_PT-BR7805959671_UHD.jpg) 
