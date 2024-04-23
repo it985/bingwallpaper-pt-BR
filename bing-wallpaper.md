@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-24 | [Biblioteca da Universidade Trinity, Dublin, Irlanda (© Vincent Isore/Getty Images)](https://global.bing.com/th?id=OHR.TrinityDublin_PT-BR4634069744_UHD.jpg) 
+
 2024-04-23 | [Tartaruga-verde, San Diego, Califórnia, EUA (© Ralph Pace/Minden Pictures)](https://global.bing.com/th?id=OHR.EarthDayTurtle_PT-BR2849722316_UHD.jpg) 
 
 2024-04-22 | [Sparks Lane em Cades Cove, Parque Nacional das Grandes Montanhas Fumegantes, Tennessee, EUA (© Richard Bernabe/Shutterstock)](https://global.bing.com/th?id=OHR.CadesCove_PT-BR2584359483_UHD.jpg) 
