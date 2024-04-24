@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-25 | [Trillium branco florescendo em Ontário, Canadá (© Jun Zhang/Getty Images)](https://global.bing.com/th?id=OHR.TrilliumOntario_PT-BR3357394159_UHD.jpg) 
+
 2024-04-24 | [Biblioteca da Universidade Trinity, Dublin, Irlanda (© Vincent Isore/Getty Images)](https://global.bing.com/th?id=OHR.TrinityDublin_PT-BR4634069744_UHD.jpg) 
 
 2024-04-23 | [Tartaruga-verde, San Diego, Califórnia, EUA (© Ralph Pace/Minden Pictures)](https://global.bing.com/th?id=OHR.EarthDayTurtle_PT-BR2849722316_UHD.jpg) 
