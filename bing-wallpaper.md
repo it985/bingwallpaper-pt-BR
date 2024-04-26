@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-27 | [Árvore de Kalaloch, conhecida como a árvore da vida, Praia de Kalaloch, Parque Nacional Olímpico, Washington, EUA (© Abbie Warnock-Matthews/Shutterstock)](https://global.bing.com/th?id=OHR.KalalochTree_PT-BR4023725758_UHD.jpg) 
+
 2024-04-26 | [Pinguins-de-Adélia em um iceberg, Antártica (© Patrick J. Endres/Getty Images)](https://global.bing.com/th?id=OHR.PenguinDirections_PT-BR3690073340_UHD.jpg) 
 
 2024-04-25 | [Trillium branco florescendo em Ontário, Canadá (© Jun Zhang/Getty Images)](https://global.bing.com/th?id=OHR.TrilliumOntario_PT-BR3357394159_UHD.jpg) 
