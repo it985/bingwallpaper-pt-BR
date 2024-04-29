@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-30 | [Tulou de Fuquiém, edifícios de patrimônio histórico e cultural na província de Fuquiém, China (© Hongjie Han/Getty Images)](https://global.bing.com/th?id=OHR.TulouFujian_PT-BR4910373349_UHD.jpg) 
+
 2024-04-29 | [El Capitan ao nascer do sol no Parque Nacional das Montanhas Guadalupe, Texas, EUA (© Adam Mowery/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.GuadalupeTexas_PT-BR4550245879_UHD.jpg) 
 
 2024-04-28 | [Beija-flor leucístico de Anna no Jardim da Austrália, UCSC Arboretum, Santa Cruz, Califórnia, EUA (© yhelfman/Getty Images)](https://global.bing.com/th?id=OHR.LeucisticHummingbird_PT-BR4306978820_UHD.jpg) 
