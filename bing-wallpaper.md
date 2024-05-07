@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-08 | [Um patinho nadando em um lago, Suffolk, Inglaterra (© Nick Hurst/Getty Images)](https://global.bing.com/th?id=OHR.LittleDuckling_PT-BR9050778673_UHD.jpg) 
+
 2024-05-07 | [Heidelberg, no rio Neckar, em Baden-Württemberg, Alemanha (© Juergen Sack/Getty Images)](https://global.bing.com/th?id=OHR.RiverNekarHeidelberg_PT-BR6227220024_UHD.jpg) 
 
 2024-05-06 | [Colunata em San Miguel de Allende, Guanajuato, México (© Mint Images/Getty Images)](https://global.bing.com/th?id=OHR.SanMiguelAllende_PT-BR8483156225_UHD.jpg) 
