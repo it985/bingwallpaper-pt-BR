@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-10 | [Tulipas no Emirgan Park em Istambul, Turquia (© Ozbalci/Getty Images)](https://global.bing.com/th?id=OHR.EmirganPark_PT-BR9433604698_UHD.jpg) 
+
 2024-05-09 | [Cataratas do Iguaçu durante o amanhecer (© SinghaphanAllB/Moment/Getty Images)](https://global.bing.com/th?id=OHR.IguazuTurism_PT-BR9760109650_UHD.jpg) 
 
 2024-05-08 | [Um patinho nadando em um lago, Suffolk, Inglaterra (© Nick Hurst/Getty Images)](https://global.bing.com/th?id=OHR.LittleDuckling_PT-BR9050778673_UHD.jpg) 
