@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-12 | [Um azulão empoleirado em um galho, Texas, Estados Unidos (© Jeff R Clow/Getty Images)](https://global.bing.com/th?id=OHR.TexasIndigoBunting_PT-BR6730881258_UHD.jpg) 
+
 2024-05-11 | [Misool, Ilhas Raja Ampat, Indonésia (© Giordano Cipriani/Getty Images)](https://global.bing.com/th?id=OHR.MisoolRajaAmpat_PT-BR6517717174_UHD.jpg) 
 
 2024-05-10 | [Tulipas no Emirgan Park em Istambul, Turquia (© Ozbalci/Getty Images)](https://global.bing.com/th?id=OHR.EmirganPark_PT-BR9433604698_UHD.jpg) 
