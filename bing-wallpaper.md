@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-15 | [Trilha que leva ao Big Room, Grutas de Carlsbad, Novo México (© Doug Meek/Getty Images)](https://global.bing.com/th?id=OHR.CarlsbadNP_PT-BR7544935694_UHD.jpg) 
+
 2024-05-14 | [Desfiladeiro do rio Fish, Namíbia (© R. M. Nunes/Getty Images)](https://global.bing.com/th?id=OHR.NamibiaCanyon_PT-BR7314875835_UHD.jpg) 
 
 2024-05-13 | [Fêmea de guanaco e bebê recém-nascido em pastagem, província de La Pampa, Argentina (© Gabriel Rojo/Minden Pictures)](https://global.bing.com/th?id=OHR.GuanacoMother_PT-BR7069142219_UHD.jpg) 
