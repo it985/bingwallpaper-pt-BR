@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-17 | ['Feelings are Facts' (Sentimentos são fatos), do artista Olafur Eliasson e do arquiteto Ma Yansong, Pequim, China (© Feng Li/Getty Images News)](https://global.bing.com/th?id=OHR.DayOfLight_PT-BR7977320546_UHD.jpg) 
+
 2024-05-16 | [A Cidade Azul de Jodhpur, Índia (© cinoby/Getty Images)](https://global.bing.com/th?id=OHR.BlueCityIndia_PT-BR7765486791_UHD.jpg) 
 
 2024-05-15 | [Trilha que leva ao Big Room, Grutas de Carlsbad, Novo México (© Doug Meek/Getty Images)](https://global.bing.com/th?id=OHR.CarlsbadNP_PT-BR7544935694_UHD.jpg) 
