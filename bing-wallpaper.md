@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-21 | [Abelha cuidando do favo de mel (© Simun Ascic/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.HoneycombBee_PT-BR0168442685_UHD.jpg) 
+
 2024-05-20 | [Vila de Vernazza, Cinque Terre, Ligúria, Itália (© Roberto Moiola/Sysaworld/Getty Images)](https://global.bing.com/th?id=OHR.VernazzaItaly_PT-BR0108995686_UHD.jpg) 
 
 2024-05-19 | [Esqueleto de baleia azul chamada Hope, Museu de História Natural, Londres, Inglaterra (© Bailey-Cooper Photography/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.MuseumWhale_PT-BR0044062488_UHD.jpg) 
