@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-22 | [Plantação de chá de Cameron Highlands, Malásia (© alex cheong/Getty Images)](https://global.bing.com/th?id=OHR.MalaysiaTea_PT-BR0222561765_UHD.jpg) 
+
 2024-05-21 | [Abelha cuidando do favo de mel (© Simun Ascic/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.HoneycombBee_PT-BR0168442685_UHD.jpg) 
 
 2024-05-20 | [Vila de Vernazza, Cinque Terre, Ligúria, Itália (© Roberto Moiola/Sysaworld/Getty Images)](https://global.bing.com/th?id=OHR.VernazzaItaly_PT-BR0108995686_UHD.jpg) 
