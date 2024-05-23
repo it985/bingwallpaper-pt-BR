@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-24 | [Tartaruga-estrelada-indiana, Sri Lanka (© Robin Chittenden/Minden Pictures)](https://global.bing.com/th?id=OHR.IndianStarTortoise_PT-BR0334099944_UHD.jpg) 
+
 2024-05-23 | [Eucalipto goma-da-neve-da-Tasmânia (Eucalyptus pauciflora), Parque Nacional Mount Field, Tasmânia, Austrália (© Ignacio Palacios/Getty Images)](https://global.bing.com/th?id=OHR.SnowGumTasmania_PT-BR0279882424_UHD.jpg) 
 
 2024-05-22 | [Plantação de chá de Cameron Highlands, Malásia (© alex cheong/Getty Images)](https://global.bing.com/th?id=OHR.MalaysiaTea_PT-BR0222561765_UHD.jpg) 
