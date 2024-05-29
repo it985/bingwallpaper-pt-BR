@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-30 | [Lontras européias adolescentes, Loch Spelve, Ilha de Mull, Escócia (© Neil Henderson/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.MullOtter_PT-BR0721243704_UHD.jpg) 
+
 2024-05-29 | [Mosteiro de Roussanou, Meteora, Tessália, Grécia (© Marius Roman/Getty Images)](https://global.bing.com/th?id=OHR.MeteoraMonastery_PT-BR0665856775_UHD.jpg) 
 
 2024-05-28 | [Parque Nacional Serra dos Órgãos em Petrópolis, Río de Janeiro (© MesquitaFMS/Getty Images)](https://global.bing.com/th?id=OHR.MataAtlantica_PT-BR0600772527_UHD.jpg) 
