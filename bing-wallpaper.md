@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-03 | [Bicicletas em Copenhague, Dinamarca (© Alphotographic/Getty Images)](https://global.bing.com/th?id=OHR.CopenhagenBicycles_PT-BR5476760078_UHD.jpg) 
+
 2024-06-02 | [Centro Cívico de São Francisco iluminado com luzes de arco-íris para Orgulho LGBTQIA+, Califórnia, EUA (© Josh Edelson/AFP via Getty Images)](https://global.bing.com/th?id=OHR.PrideMonthSF_PT-BR6281938141_UHD.jpg) 
 
 2024-06-01 | [Gunnerside, Swaledale, Parque Nacional de Yorkshire Dales, Inglaterra (© Derek Croucher/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.YorkshireDalesNP_PT-BR5805097424_UHD.jpg) 
