@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-04 | [Capivara, o maior roedor do mundo, na margem de um rio no Pantanal (© Joe McDonald/Getty Images)](https://global.bing.com/th?id=OHR.CapybaraEducation_PT-BR9998060500_UHD.jpg) 
+
 2024-06-03 | [Bicicletas em Copenhague, Dinamarca (© Alphotographic/Getty Images)](https://global.bing.com/th?id=OHR.CopenhagenBicycles_PT-BR5476760078_UHD.jpg) 
 
 2024-06-02 | [Centro Cívico de São Francisco iluminado com luzes de arco-íris para Orgulho LGBTQIA+, Califórnia, EUA (© Josh Edelson/AFP via Getty Images)](https://global.bing.com/th?id=OHR.PrideMonthSF_PT-BR6281938141_UHD.jpg) 
