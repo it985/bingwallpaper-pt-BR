@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-07 | [Monumento Les Braves na praia de Omaha, Normandia, França (© Christopher Furlong/Getty Images)](https://global.bing.com/th?id=OHR.LesBravesNormandy_PT-BR7484983029_UHD.jpg) 
+
 2024-06-06 | [Parque Nacional de Masoala, em Madagascar (© Dennis van de Water/Shutterstock)](https://global.bing.com/th?id=OHR.MadagascarRiver_PT-BR7232388819_UHD.jpg) 
 
 2024-06-05 | [Abelharuco-de-cabeça-castanha, Parque Nacional de Bardia, Nepal (© PACO COMO/Shutterstock)](https://global.bing.com/th?id=OHR.ChestnutBeeEater_PT-BR6524596779_UHD.jpg) 
