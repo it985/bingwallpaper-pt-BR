@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-09 | [Confluência de Easter Creek e Killik River, Parque Nacional e Reserva Portas do Ártico, Alasca, EUA (© Patrick J. Endres/Getty Images)](https://global.bing.com/th?id=OHR.KillikRiverAlaska_PT-BR9004579454_UHD.jpg) 
+
 2024-06-08 | [Família de baleias jubarte, Dutch Harbor, Alasca, EUA (© Jude Newkirk/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.HumpbackFamily_PT-BR7707157719_UHD.jpg) 
 
 2024-06-07 | [Monumento Les Braves na praia de Omaha, Normandia, França (© Christopher Furlong/Getty Images)](https://global.bing.com/th?id=OHR.LesBravesNormandy_PT-BR7484983029_UHD.jpg) 
