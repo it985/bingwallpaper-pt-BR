@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-20 | [Torre de água em Cuxhaven, Alemanha (© Andreas Vogel/Alamy)](https://global.bing.com/th?id=OHR.CuxhavenTower_PT-BR2536351203_UHD.jpg) 
+
 2024-06-19 | [Campos de tremoços e igreja ao nascer do sol, Península de Snæfellsnes, Islândia (© Matteo Colombo/Getty Images)](https://global.bing.com/th?id=OHR.LupinIceland_PT-BR2281677682_UHD.jpg) 
 
 2024-06-18 | [Beija-flor brilhante de coroa verde com cardo gigante, Cerro de la Muerte, Costa Rica (© adrian hepworth/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.HummingThistle_PT-BR2010044953_UHD.jpg) 
