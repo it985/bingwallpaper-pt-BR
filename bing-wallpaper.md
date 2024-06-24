@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-25 | [Rua em Salvador decorada com bandeiras coloridas entre prédios (© Henn Photography/Aurora Photos/Getty Images)](https://global.bing.com/th?id=OHR.FestasJuninas_PT-BR2004376750_UHD.jpg) 
+
 2024-06-24 | [Vista aérea de uma rotatória em Daca, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.DhakaBangladesh_PT-BR3551380225_UHD.jpg) 
 
 2024-06-23 | [Floresta Amazônica, Brasil (© Claus Meyer/plainpicture)](https://global.bing.com/th?id=OHR.BrazilRainforest_PT-BR3213724204_UHD.jpg) 
