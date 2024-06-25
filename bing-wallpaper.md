@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-26 | [Formação rochosa Onda do Fogo, Parque Estadual Vale do Fogo, Nevada, EUA (© Clint Losee/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.FireWave_PT-BR3949258525_UHD.jpg) 
+
 2024-06-25 | [Rua em Salvador decorada com bandeiras coloridas entre prédios (© Henn Photography/Aurora Photos/Getty Images)](https://global.bing.com/th?id=OHR.FestasJuninas_PT-BR2004376750_UHD.jpg) 
 
 2024-06-24 | [Vista aérea de uma rotatória em Daca, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.DhakaBangladesh_PT-BR3551380225_UHD.jpg) 
