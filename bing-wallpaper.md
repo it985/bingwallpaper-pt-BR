@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-27 | [Peixe Cardinal Bangai juvenil com anêmona do mar, Estreito de Lembeh, Sulawesi do Norte, Indonésia (© Constantinos Petrinos/NPL/Minden Pictures)](https://global.bing.com/th?id=OHR.CardinalfishAnemone_PT-BR4236573966_UHD.jpg) 
+
 2024-06-26 | [Formação rochosa Onda do Fogo, Parque Estadual Vale do Fogo, Nevada, EUA (© Clint Losee/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.FireWave_PT-BR3949258525_UHD.jpg) 
 
 2024-06-25 | [Rua em Salvador decorada com bandeiras coloridas entre prédios (© Henn Photography/Aurora Photos/Getty Images)](https://global.bing.com/th?id=OHR.FestasJuninas_PT-BR2004376750_UHD.jpg) 
