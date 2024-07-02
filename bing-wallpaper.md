@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-03 | [Italica, uma antiga cidade romana em Santiponce, Sevilha, Andaluzia, Espanha (© Moses Palermo/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.ItalicaRuins_PT-BR7394410327_UHD.jpg) 
+
 2024-07-02 | [Farol de Fisgard, porto de Esquimalt, Colwood, Colúmbia Britânica, Canadá (© davemantel/Getty Images)](https://global.bing.com/th?id=OHR.FisgardLighthouse_PT-BR7039409660_UHD.jpg) 
 
 2024-07-01 | [Escultura em pedra em um templo em Ubud, Bali, Indonésia (© R. Schönebaum/plainpicture)](https://global.bing.com/th?id=OHR.UbudBali_PT-BR6634868084_UHD.jpg) 
