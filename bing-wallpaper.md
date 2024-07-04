@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-05 | [Zahara de la Sierra, Andaluzia, Espanha (© Francesco Carovillano/eStock Photo)](https://global.bing.com/th?id=OHR.ZaharaDeLaSierra_PT-BR7910795678_UHD.jpg) 
+
 2024-07-04 | [Família dos suricatos (© anetapics/Shutterstock)](https://global.bing.com/th?id=OHR.MeerkatManor_PT-BR7654628186_UHD.jpg) 
 
 2024-07-03 | [Italica, uma antiga cidade romana em Santiponce, Sevilha, Andaluzia, Espanha (© Moses Palermo/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.ItalicaRuins_PT-BR7394410327_UHD.jpg) 
