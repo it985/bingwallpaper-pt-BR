@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-08 | [Terraços de arroz de Mù Cang Chải, província de Yên Bái, Vietnã (© Kiatanan Sugsompian/Getty Images)](https://global.bing.com/th?id=OHR.YenBaiTerraces_PT-BR8757811796_UHD.jpg) 
+
 2024-07-07 | [Castelo de Conwy com vista para o rio Conwy, País de Gales (© David Chapman/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.ConwyRiver_PT-BR8493712176_UHD.jpg) 
 
 2024-07-06 | [Praia de Noah na floresta tropical de Daintree, Queensland, Austrália (© bjeayes/Getty Images)](https://global.bing.com/th?id=OHR.NoahBeach_PT-BR8215908491_UHD.jpg) 
