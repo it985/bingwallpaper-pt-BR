@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-11 | [Araçari-de-coleira, Costa Rica (© Juan Carlos Vindas/Getty Images)](https://global.bing.com/th?id=OHR.CollaredAracari_PT-BR9257323315_UHD.jpg) 
+
 2024-07-10 | [Parque Nacional de Talampaya, província de La Rioja, Argentina (© Gonzalo Azumendi/Getty Images)](https://global.bing.com/th?id=OHR.TalampayaNP_PT-BR9006778184_UHD.jpg) 
 
 2024-07-09 | [A bela cidade de Ouro Preto, em Minas Gerais, Brasil Getty Images (© filipefrazao/Getty Images)](https://global.bing.com/th?id=OHR.AniversarioOuroPreto_PT-BR1746358764_UHD.jpg) 
