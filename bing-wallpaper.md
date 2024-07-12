@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-13 | [Flores silvestres no Parque Nacional do Monte Rainier, Washington, EUA (© RomanKhomlyak/Getty Images)](https://global.bing.com/th?id=OHR.RainierWildflowers_PT-BR9770254578_UHD.jpg) 
+
 2024-07-12 | [Gangi, Sicília, Itália (© Andrea Caruso/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.GangiSicily_PT-BR9510016968_UHD.jpg) 
 
 2024-07-11 | [Araçari-de-coleira, Costa Rica (© Juan Carlos Vindas/Getty Images)](https://global.bing.com/th?id=OHR.CollaredAracari_PT-BR9257323315_UHD.jpg) 
