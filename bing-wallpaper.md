@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-16 | [Parque Tateishi, Prefeitura de Kanagawa, Japão (© blew_s/Shutterstock)](https://global.bing.com/th?id=OHR.TateishiPark_PT-BR0601453659_UHD.jpg) 
+
 2024-07-15 | [Tubarão-seda em Jardines de la Reina, Cuba (© Christian Vizl/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SilkyShark_PT-BR0331927489_UHD.jpg) 
 
 2024-07-14 | [Chaminés de fadas e grutas na Capadócia, Turquia (© Storm Is Me/Shutterstock)](https://global.bing.com/th?id=OHR.CappadociaRocks_PT-BR0064255602_UHD.jpg) 
