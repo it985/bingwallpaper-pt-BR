@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-17 | [O assentamento neolítico de Skara Brae, Orkney, Escócia (© Paul Williams - FunkyStock/Getty Images)](https://global.bing.com/th?id=OHR.AncientOrkney_PT-BR0835986378_UHD.jpg) 
+
 2024-07-16 | [Parque Tateishi, Prefeitura de Kanagawa, Japão (© blew_s/Shutterstock)](https://global.bing.com/th?id=OHR.TateishiPark_PT-BR0601453659_UHD.jpg) 
 
 2024-07-15 | [Tubarão-seda em Jardines de la Reina, Cuba (© Christian Vizl/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SilkyShark_PT-BR0331927489_UHD.jpg) 
