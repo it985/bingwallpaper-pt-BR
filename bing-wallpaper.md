@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-18 | [Vista de um barco na Amazônia (© StreetFlash/Getty Images)](https://global.bing.com/th?id=OHR.DiadoCurupira_PT-BR5262042998_UHD.jpg) 
+
 2024-07-17 | [O assentamento neolítico de Skara Brae, Orkney, Escócia (© Paul Williams - FunkyStock/Getty Images)](https://global.bing.com/th?id=OHR.AncientOrkney_PT-BR0835986378_UHD.jpg) 
 
 2024-07-16 | [Parque Tateishi, Prefeitura de Kanagawa, Japão (© blew_s/Shutterstock)](https://global.bing.com/th?id=OHR.TateishiPark_PT-BR0601453659_UHD.jpg) 
