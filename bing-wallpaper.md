@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-22 | [Barcos de pesca de madeira na vila de Kendwa, Zanzibar, Tanzânia (© Lubos Paukeje/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.ZanzibarBoats_PT-BR1541762225_UHD.jpg) 
+
 2024-07-21 | [A lua (© Victor Blum/Getty Images)](https://global.bing.com/th?id=OHR.MineralMoon_PT-BR1317802439_UHD.jpg) 
 
 2024-07-20 | [Arena da Amazônia, Brasil (© PA Images/Alamy)](https://global.bing.com/th?id=OHR.DiaNacionaldoFutebol_PT-BR4614165115_UHD.jpg) 
