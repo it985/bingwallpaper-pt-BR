@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-25 | [Uma jovem onça-pintada em uma margem de rio, Pantanal, Brasil (© Tambako the Jaguar/Getty Images)](https://global.bing.com/th?id=OHR.YoungJaguar_PT-BR2280455172_UHD.jpg) 
+
 2024-07-24 | [Castelo de Methoni, Messina, Grécia (© Andrew Mayovskyy/Shutterstock)](https://global.bing.com/th?id=OHR.MethoniCastle_PT-BR2033564506_UHD.jpg) 
 
 2024-07-23 | [Acampamento com rede em um lago na Flórida Central, EUA (© Mac Stone/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.HammockCamping_PT-BR1798965099_UHD.jpg) 
