@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-26 | [Caminho florestal no Parque Nacional das Grandes Montanhas Fumegantes, Tennessee, EUA (© putmanphoto/Getty Images)](https://global.bing.com/th?id=OHR.SmokyMountainTrail_PT-BR2635483756_UHD.jpg) 
+
 2024-07-25 | [Uma jovem onça-pintada em uma margem de rio, Pantanal, Brasil (© Tambako the Jaguar/Getty Images)](https://global.bing.com/th?id=OHR.YoungJaguar_PT-BR2280455172_UHD.jpg) 
 
 2024-07-24 | [Castelo de Methoni, Messina, Grécia (© Andrew Mayovskyy/Shutterstock)](https://global.bing.com/th?id=OHR.MethoniCastle_PT-BR2033564506_UHD.jpg) 
