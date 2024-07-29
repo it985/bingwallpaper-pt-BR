@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-30 | [Imagem aérea de uma plantação de café, Brasil (© Murilo Gualda/Getty Images)](https://global.bing.com/th?id=OHR.DiadoAgricultor_PT-BR1621260840_UHD.jpg) 
+
 2024-07-29 | [Cabanas de banho na praia no condado de Escânia, Suécia (© Martin Wahlborg/Getty Images)](https://global.bing.com/th?id=OHR.BeachHutsSweden_PT-BR7531114296_UHD.jpg) 
 
 2024-07-28 | [Vinhedos no Vale do Mosela, Renânia-Palatinado, Alemanha (© Jorg Greuel/Getty Images)](https://global.bing.com/th?id=OHR.RhinelandVineyards_PT-BR7268269161_UHD.jpg) 
