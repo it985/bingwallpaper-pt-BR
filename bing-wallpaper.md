@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-05 | [Diversos Preguiças-de-três-dedos, Amazônia, Brasil (© Gerald & Marc/Superstock)](https://global.bing.com/th?id=OHR.DiaInternacionaldosAvos_PT-BR2289016069_UHD.jpg) 
+
 2024-08-04 | [As três pontes naturais, Parque Nacional de Geologia Wulong Karst, China (© Pav-Pro Photography Ltd/Shutterstock)](https://global.bing.com/th?id=OHR.WulongKarst_PT-BR9259543869_UHD.jpg) 
 
 2024-08-03 | [Baía do Tronco, Parque Nacional das Ilhas Virgens, Saint John, EUA (© cdwheatley/Getty Images)](https://global.bing.com/th?id=OHR.TrunkBay_PT-BR8573788345_UHD.jpg) 
