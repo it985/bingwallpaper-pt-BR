@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-07 | [Molokini, Maui, Havaí, EUA (© Douglas Peebles/eStock Photo)](https://global.bing.com/th?id=OHR.MolokiniHawaii_PT-BR9827408111_UHD.jpg) 
+
 2024-08-06 | [Campo de lavanda, Hertfordshire, Inglaterra, Reino Unido (© George W Johnson/Getty Images)](https://global.bing.com/th?id=OHR.HertfordshireLavender_PT-BR9531166050_UHD.jpg) 
 
 2024-08-05 | [Diversos Preguiças-de-três-dedos, Amazônia, Brasil (© Gerald & Marc/Superstock)](https://global.bing.com/th?id=OHR.DiaInternacionaldosAvos_PT-BR2289016069_UHD.jpg) 
