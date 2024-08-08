@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-09 | [Coruja-pintada, Bangcoc, Tailândia (© Tfilm/Getty Images)](https://global.bing.com/th?id=OHR.SpottedOwlet_PT-BR0320206589_UHD.jpg) 
+
 2024-08-08 | [Faróis de St. Joseph, Michigan, EUA (© Kenneth Keifer/Getty Images)](https://global.bing.com/th?id=OHR.MichiganLighthouse_PT-BR0055198491_UHD.jpg) 
 
 2024-08-07 | [Molokini, Maui, Havaí, EUA (© Douglas Peebles/eStock Photo)](https://global.bing.com/th?id=OHR.MolokiniHawaii_PT-BR9827408111_UHD.jpg) 
