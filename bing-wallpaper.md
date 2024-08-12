@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-13 | [Elefantes africanos, Parque Nacional Amboseli, Quênia (© Ruzdi Ekenheim/Getty Images)](https://global.bing.com/th?id=OHR.ElephantsAmboseli_PT-BR3607711073_UHD.jpg) 
+
 2024-08-12 | [Garça-tigre-ruiva (Tigrisoma lineatum) adulta e filhote no ninho, Mato Grosso, Pantanal (© Ben Cranke/Minden)](https://global.bing.com/th?id=OHR.DiadosPais_PT-BR1045421907_UHD.jpg) 
 
 2024-08-11 | [Parque Nacional de Joshua Tree, Califórnia, EUA (© Chris Moore - Exploring Light Photography/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.JoshuaTreeNP_PT-BR8498081592_UHD.jpg) 
