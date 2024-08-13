@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-14 | [Penhascos do Parque Natural Telašćica, Ilha Dugi Otok, Croácia (© Ilija Ascic/Shutterstock)](https://global.bing.com/th?id=OHR.DugiOtokCroatia_PT-BR3949170501_UHD.jpg) 
+
 2024-08-13 | [Elefantes africanos, Parque Nacional Amboseli, Quênia (© Ruzdi Ekenheim/Getty Images)](https://global.bing.com/th?id=OHR.ElephantsAmboseli_PT-BR3607711073_UHD.jpg) 
 
 2024-08-12 | [Garça-tigre-ruiva (Tigrisoma lineatum) adulta e filhote no ninho, Mato Grosso, Pantanal (© Ben Cranke/Minden)](https://global.bing.com/th?id=OHR.DiadosPais_PT-BR1045421907_UHD.jpg) 
