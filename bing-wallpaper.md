@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-15 | [Diabo-espinhoso, Parque Nacional de Watarrka, Austrália (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://global.bing.com/th?id=OHR.WatarrkaLizard_PT-BR4397893741_UHD.jpg) 
+
 2024-08-14 | [Penhascos do Parque Natural Telašćica, Ilha Dugi Otok, Croácia (© Ilija Ascic/Shutterstock)](https://global.bing.com/th?id=OHR.DugiOtokCroatia_PT-BR3949170501_UHD.jpg) 
 
 2024-08-13 | [Elefantes africanos, Parque Nacional Amboseli, Quênia (© Ruzdi Ekenheim/Getty Images)](https://global.bing.com/th?id=OHR.ElephantsAmboseli_PT-BR3607711073_UHD.jpg) 
