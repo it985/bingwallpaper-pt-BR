@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-20 | [Bufadero de la Garita, Gran Canaria, Espanha (© Marco Bottigelli/Getty Images)](https://global.bing.com/th?id=OHR.RegataSanGines_PT-BR4759271274_UHD.jpg) 
+
 2024-08-19 | [Píer de Huntington Beach ao pôr do sol, Califórnia, EUA (© Stan Moniz Photography/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.HuntingtonBeach_PT-BR8909327744_UHD.jpg) 
 
 2024-08-18 | [Farol de Alfanzina, Algarve, Portugal (© Andreas Kunz/Getty Images)](https://global.bing.com/th?id=OHR.AlfanzinaLighthouse_PT-BR6712020565_UHD.jpg) 
