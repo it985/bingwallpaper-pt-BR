@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-21 | [Nascer do sol no Parque Nacional de Grand Teton, Wyoming, EUA (© Kurt Budliger/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.TetonSunrise_PT-BR5413477464_UHD.jpg) 
+
 2024-08-20 | [Bufadero de la Garita, Gran Canaria, Espanha (© Marco Bottigelli/Getty Images)](https://global.bing.com/th?id=OHR.RegataSanGines_PT-BR4759271274_UHD.jpg) 
 
 2024-08-19 | [Píer de Huntington Beach ao pôr do sol, Califórnia, EUA (© Stan Moniz Photography/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.HuntingtonBeach_PT-BR8909327744_UHD.jpg) 
