@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-22 | [Atobá-de-pé-vermelho, Ilha Wolf, Ilhas Galápagos, Equador (© Tui De Roy/Minden Pictures)](https://global.bing.com/th?id=OHR.NazcaBooby_PT-BR5782154593_UHD.jpg) 
+
 2024-08-21 | [Nascer do sol no Parque Nacional de Grand Teton, Wyoming, EUA (© Kurt Budliger/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.TetonSunrise_PT-BR5413477464_UHD.jpg) 
 
 2024-08-20 | [Bufadero de la Garita, Gran Canaria, Espanha (© Marco Bottigelli/Getty Images)](https://global.bing.com/th?id=OHR.RegataSanGines_PT-BR4759271274_UHD.jpg) 
