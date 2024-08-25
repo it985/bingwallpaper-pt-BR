@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-26 | [Amanhecer sobre o Lago Swiftcurrent, Parque Nacional Glacier, Montana, EUA (© Jason Savage/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SwiftcurrentLake_PT-BR2467952516_UHD.jpg) 
+
 2024-08-25 | [Monumento Nacional Katahdin Woods and Waters, Condado de Penobscot, Maine, EUA (© Cavan Images/Alamy)](https://global.bing.com/th?id=OHR.KatahdinWoods_PT-BR1618400732_UHD.jpg) 
 
 2024-08-24 | [Ruínas do templo de Prasat Phanom Rung, província de Buriram, Tailândia (© Banjongseal324/Getty Images)](https://global.bing.com/th?id=OHR.PrasatPhanom_PT-BR0925050083_UHD.jpg) 
