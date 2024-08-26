@@ -35,7 +35,7 @@ jobs:
           ls -la
           echo "Listing files in the docs directory:"
           ls -la docs
-          echo "Listing files in the en-gb directory:"
+          echo "Listing files in the pt-br directory:"
           ls -la pt-br
       - name: current date
         run: date
