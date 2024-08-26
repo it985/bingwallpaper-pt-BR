@@ -64,7 +64,7 @@ public class Wallpaper {
 
     public static void changeConfig(String region) {
         region = region.toLowerCase();
-        if ("en-us".equalsIgnoreCase(region)) {
+        if ("pt-br".equalsIgnoreCase(region)) {
             BingFileUtils.README_PATH = Paths.get("README.md");
             BingFileUtils.BING_PATH = Paths.get("bing-wallpaper.md");
             BingFileUtils.MONTH_PATH = Paths.get("picture/");
